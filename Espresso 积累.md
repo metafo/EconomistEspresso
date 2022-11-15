@@ -4854,3 +4854,100 @@ Monday: Which painter, a close associate of the writer Lytton Strachey, was port
 > **In difficult times fashion is always outrageous.**
 >
 > Elsa Schiaparelli
+
+
+
+### November 15, 2022
+
+#### The world in brief November 15, 2022
+
+Catch up quickly on the global stories that matter
+
+Updated 4 hours ago (22:27 GMT / 06:27 Hong Kong)
+
+President Joe Biden rejected the idea of a “new cold war” with China and said he believed Taiwan faced no “imminent” threat of invasion. The remarks came after a three-hour meeting with his Chinese counterpart, Xi Jinping, ahead of the G20 summit in Indonesia. Antony Blinken, America’s secretary of state, will visit Beijing early next year to follow up on the talks.
+
+Ukraine’s president, Volodymyr Zelensky, visited the liberated city of Kherson and addressed a crowd gathered in the main square. Mr Zelensky reportedly said that Ukraine was “ready for peace”. Earlier he said that investigators have documented more than 400 war crimes committed by Russian troops around the city. Ukraine has also accused Russia of laying mines around critical infrastructure.
+
+Federal prosecutors in New York opened an investigation into the collapse of FTX, after the crypto exchange filed for bankruptcy amid a rush of customer withdrawals. The probe will examine whether FTX lent customers’ money to Alameda Research, a crypto trading company also owned by Sam Bankman-Fried. Two of America’s regulators, the Securities and Exchange Commission and the Commodity Futures Trading Commission, have already launched similar investigations.
+
+Brazil, the Democratic Republic of Congo and Indonesia, which host more than half the world’s rainforests, announced plans to work together to conserve them. The pledge was made in Bali ahead of the G20 summit. Meanwhile, at COP27 in Egypt, G7 countries launched an initiative to insure vulnerable countries hit by climate disasters. Germany offered €170m ($175m) of the initial €210m needed for the scheme.
+
+Amazon will lay off around 10,000 employees in its technology, human resources and retail divisions, according to the New York Times. The redundancies, slated to begin this week, represent 3% of the e-commerce giant’s workforce and the largest such cut in its history. It follows similar moves by Meta, Twitter and Lyft, as America’s big tech industry grapples with the possibility of a looming recession.
+
+Rockets and drones launched by Iran’s Revolutionary Guard killed at least two people and injured 10 others on Monday. The attacks targeted Kurdish-Iranian groups based across the border in Iraq, whom Iran accuses of fomentingnational unrest. In September, Mahsa Amini, a 22-year-old Kurdish woman, died after police detained her for improperly wearing her hijab in Tehran, the capital, kicking off weeks of protest.
+
+There was still no certainty about which way America’s House of Representatives would fall. Despite keeping control of the Senate, President Joe Biden remained sober about Democrats’ chances in the lower chamber. “It’s going to be very close”, Mr Biden told reporters on Monday at the G20 summit, “but I don’t think we’re going to make it”. The Republicans are six seats short of the 218 required for a majority. The Democrats have 204.
+
+#### Fact of the day:
+
+**10.4bn**, the size at which the global population is expected to peak, sometime between 2080 and 2100. 
+
+
+
+#### Jokowi plays statesman at the G20
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap307.jpg)
+
+PHOTO: GETTY IMAGES
+Its Indonesian host, President Joko Widodo, calls this G20 summit, which begins on Tuesday, the “most difficult” yet. Motivated by domestic issues, Jokowi (as he is known) has rarely cared for the global stage. But dialogue is his new mantra.
+
+Jokowi tried hard to get Vladimir Putin, Russia’s president, and Volodymyr Zelensky, the president of Ukraine, to join him at the luxury hotel in Bali. Instead both are staying away. But Western leaders may yet boycott a photoshoot if Sergei Lavrov, Russia’s foreign minister, insists on joining. (Reports on Monday that he was unwell were dismissed by the Kremlin as “fake news”.)
+
+Elsewhere, little progress is expected around issues of global governance. And despite Jokowi’s efforts to create a genial atmosphere, the worsening relationship between China and America is the elephant in the ballroom. A meeting between their presidents, Xi Jinping and Joe Biden, on Monday, was a dialogue of sorts. But their list of gripes is extensive.
+
+#### The world’s eight billionth person
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap308_1.jpg)
+
+PHOTO: GETTY IMAGES
+On Tuesday the world reaches a milestone. The global population, according to UN projections, will reach 8bn. Twelve years have passed since the world passed the 7bn milestone, and 6bn was passed 12 years before that.
+
+The rate of growth has fallen. This year the population is forecast to have risen by just 0.8%, the slowest rate since the 1950s and a third of the peak in 1963. Women are choosing to have fewer children and between now and 2050, the UN thinks, 61 countries will see their populations fall by at least 1%.
+
+The global population is like a train: slam the brakes on and it stops, but only eventually. According to the UN, it will take 15 years to add the next billion people, and 21 years to reach the billion after that. The world is coming to an inflection point: the momentum of growth that has prevailed since the 1950s is being replaced by stability and stasis.
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221119_DAC746.jpg)
+
+#### Donald Trump runs again
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap311.jpg)
+
+PHOTO: AP
+“I will very, very, very probably do it again,” said Donald Trump this month at a rally in Sioux City, Iowa. On Tuesday Mr Trump will make his intention to run for president in 2024 official. At least, very, very, very probably.
+
+America’s former president may be motivated by more than politics. Returning to the White House could protect him from some of the legal cases that are mounting against him. Originally he wanted to announce his bid on the eve of the midterms, but Republican leaders talked him down.Given the underwhelming performance of Trump-endorsed candidates, advisers have reportedly encouraged him to delay again.
+
+Mr Trump may see an advantage in entering the field ahead of Ron DeSantis, the governor of Florida, and Mike Pence, his former vice-president. Boosted by the Democrats’ better than expected results, President Joe Biden wants another run, too. A contest between Mr Biden and Mr Trump would be a grudge match almost nobody wants.
+
+#### Binyamin Netanyahu’s path to power
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap309.jpg)
+
+PHOTO: EPA
+On Tuesday the 120 politicians elected on November 1st as members of Israel’s parliament will meet for the first time in Jerusalem. For now Binyamin Netanyahu, a former prime minister, is still the leader of the opposition.
+
+Mr Netanyahu has been endorsed by a majority of the Knesset’s incoming members. On Sunday he received a mandate from Israel’s president, Isaac Herzog, to form a new government. But his route back to the prime minister’s office is not simple. First he must sign coalition agreements with the assortment of far-right and religious parties who comprise his majority. They have a long list of demands, including legislation that would weaken the Supreme Court and funding for Jewish schools. Hardliners also want to control important ministries including defence, public security, education and finance. Many Israelis would balk at that. Having fought so hard to win a majority, Mr Netanyahu may struggle to control it.
+
+#### Walmart rides the inflation rollercoaster
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap310.jpg)
+
+PHOTO: GETTY IMAGES
+On Tuesday Walmart is due to report its latest quarterly results. The American supermarket giant spooked investors earlier this year with a series of profit warnings as rising fuel and food prices led consumers to cut back spending on other items. That forced Walmart to sell excess stock at a discount, crimping its margins. Markets sensed a bad omen for the wider economy.
+
+Since then the firm has staged a robust recovery. Its share price is back where it was in January, despite the falling stockmarket. Inflation in America is coming down, easing pressure on customers’ wallets, but remains high enough that wealthier shoppers are still turning to Walmart for bargains. The Beast of Bentonville is also toughening up with suppliers and pushing back on price rises. A good quarter for Walmart, in other words, does not necessarily mean a good quarter for everyone else.
+
+#### Daily quiz
+
+![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_72.jpeg)
+
+Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
+
+**Tuesday:** Berkshire, Hampshire and Duroc are all breeds of what animal?
+
+**Monday:** Which painter, a close associate of the writer Lytton Strachey, was portrayed by Emma Thompson in a 1995 biopic?
+
+> **Time is not measured by the passing of years but by what one does, what one feels, and what one achieves.**
+>
+> Jawaharlal Nehru
