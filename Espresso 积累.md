@@ -5138,9 +5138,13 @@ On Thursday, at the Latin Grammy Awards in Las Vegas, the acts will probably win
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
-Thursday: Which rock group produced the international hit “Chasing Cars”?
 
-Wednesday: Which American retail chain was founded in 1923 by a Mr Pressman?
+
+**Thursday:** Which rock group produced the international hit “Chasing Cars”?
+
+**Wednesday:** Which American retail chain was founded in 1923 by a Mr Pressman?
+
+
 
 > Tyranny cannot defeat the power of ideas.
 >
