@@ -5261,3 +5261,392 @@ Our baristas will serve you a new question each day this week. On Friday your ch
 > Poetry is not only dream or vision, it is the skeleton architecture of our lives.
 >
 > Audre Lorde
+
+
+
+### November 19, 2022
+
+#### The world in brief November 19, 2022
+
+The world in brief
+Catch up quickly on the global stories that matter
+
+Updated less than 1 hour ago (04:41 GMT / 12:41 Hong Kong)
+
+A judge in California sentenced Elizabeth Holmes, founder of the disgraced blood-testing startup Theranos, to more than 11 years in prison for fraud. Ms Holmes was convicted in January of deliberately misleading investors by claiming her technology could diagnose hundreds of diseases, including cancer and diabetes, from a few drops of blood. Theranos, once valued at more than $9bn, was in fact testing samples using existing machines from other companies.
+
+America’s attorney-general, Merrick Garland, appointed Jack Smith as special counsel to lead the Justice Department’s investigations into Donald Trump. The former war-crimes prosecutor will oversee Mr Trump’s handling of classified materials at his Mar-a-Lago estate, as well as his efforts to overturn the results of the 2020 election. The appointment comes days after Mr Trump declared he would run for president again in 2024.
+
+The Kremlin accused Ukrainian forces of executing Russian prisoners of war in the Donbas. It was responding to a video that purported to show at least ten Russian soldiers being shot after they surrendered—which, if true, would be a war crime. Ukraine’s government has yet to comment on the allegation.
+
+Kim Jong Un, North Korea’s dictator, pledged to speed up the country’s nuclear-weapons programme—a response to America beefing up its regional presence in east Asia and “hysteric aggressive war drills by the enemies”, he said. Mr Kim was visiting the site from which it tested an intercontinental ballistic missile on Friday. He was accompanied by his daughter—the first time she has been seen in public.
+
+The ruptures at the Nord Stream gas pipelines in September were the result of “grievous sabotage”, an investigation by Swedish prosecutors concluded. The controversial pipelines were created to transport natural gas from Russia to Germany through the Baltic Sea, but tensions over Ukraine meant Nord Stream 2 was never operational. Prosecutors found traces of explosives, but declined to comment on probable suspects.
+
+The sale of alcohol has been banned in stadiums, only two days before the World Cup commences in Qatar. FIFA, football’s governing body, announced the decision on Friday after discussions with “host country authorities”. Anheuser-Busch InBev, the world’s biggest brewer which has sponsored the tournament for $75m, will now only sell Bud Zero, an alcohol-free beverage at stadiums.
+
+The Biden administration said that Muhammad bin Salman, Saudi Arabia’s de facto ruler, has immunity from a lawsuit over the murder of Jamal Khashoggi, a Saudi journalist. American intelligence officials believe Prince Muhammad was behind the killing in Turkey in 2018, but his new role as prime minister (he was appointed in September) means he cannot be prosecuted.
+
+#### Word of the week: 
+
+**kafala**, an Arabic word roughly meaning “sponsorship”. Workers under Qatar’s kafala system often have their freedom curtailed. 
+
+
+
+#### Malaysia goes to the polls
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap353.jpg)
+
+PHOTO: GETTY IMAGES
+On Saturday the three-quarters of Malaysians who think their country is on the wrong track have a chance to apportion the blame. That is tougher than it seems: since the most recent vote, in 2018, Malaysia has had three prime ministers from three different parties. Distracted by bickering and backstabbing, no one has governed well.
+
+The ruling Barisan Nasional coalition has promised stability, hoping that voters will look past its atrocious record of corruption. The lead party in the ascendant Perikatan Nasional coalition wants the government to be as devoutly Islamic as the country’s Malay majority, to the dismay of Indian and Chinese voters. And the Pakatan Harapan coalition hopes to rack up votes in cities by talking about good governance, something it failed to deliver after triumphing in 2018. Alas, polls suggest a hung parliament is likely. The next government may be chosen not just in polling booths but in smoke-filled rooms.
+
+
+
+#### Macron attends Francophone summit
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap351.jpg)
+
+PHOTO: AFP
+After a week in Asia, Emmanuel Macron on November 19th heads to Djerba, an island in Tunisia. There the French president will attend the Francophone summit, a bi-annual get-together of leaders of French-speaking countries. It is often an awkward gathering: an attempt to reaffirm the vitality of their common language at a time when French is challenged by the spread of English, Mandarin Chinese and other tongues. Many Francophones contest the rigid guardianship of the language by post-colonial France. Today, of the 321m people who speak French, 62% live in Africa.
+
+Mr Macron has long argued for a less formal, more vibrant way for Francophone countries to interact, once calling La Francophonie “a tired club”. But, informally, culture will not be the only talking point. The French president may well also want to discuss the war in Ukraine and insecurity in the African Sahel–France withdrew its troops from Mali after a coup in August 2021 and closed a counter-terrorist operation there.
+
+
+
+#### “Sarajevo Safari” reopens wounds of the siege
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap349.jpg)
+
+PHOTO: ARSMEDIA
+A documentary with disturbing new allegations about the siege of Sarajevo screened at Istanbul’s International Crime and Punishment Film Festival this week. “Sarajevo Safari”, a film by Miran Zupanic, a Slovenian, alleges that during the Bosnian war of 1992-95 certain foreigners paid Serbian forces to allow them to fire upon civilians in the city. An unidentified man working for an American agency says he witnessed this. And a Bosnian army veteran tells of a captured combatant who recounted how foreigners, dressed for hunting, spoke of paying for the opportunity to shoot.
+
+The allegation that outsiders were invited to fire into Sarajevo is not new. (Footage exists of a Russian writer, the late Eduard Limonov, apparently doing so.) But the charge that money changed hands has fuelled fresh outrage. After “Sarajevo Safari” was shown in Sarajevo itself in September, the Bosnian prosecutor’s office opened a new investigation into the shootings. The documentary is due to appear on Balkan television in January.
+
+
+
+#### Polish sculpture in London
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap350.jpg)
+
+PHOTO: TATE/MADELEINE BUDDO
+As a youngster Magdalena Abakanowicz saw the horror of the second world war at close range. Drunk German soldiers invaded her home and shot her mother. Ms Abakanowicz discovered that making art was a way to feel free. The Polish textile artist’s extraordinary work went on display at the Tate Modern museum in London on Thursday.
+
+Her sculptures, made from fibres like horsehair, sisal and braided hemp, are meditations on the power of imagination to overcome oppression. After the war, while seeking to study at the Academy of Fine Arts in Warsaw, she changed her name and posed as the daughter of a clerk—any sign of her landowning heritage would have led to her being denounced as a class enemy and jeopardised her place. At the time Socialist Realism was considered the only acceptable art form. In 1960 one of Ms Abakanowicz’s shows was censored after being categorised as Formalist and therefore dangerous. “In Poland it was almost forbidden to talk about mystery,” she told the New York Times. “I did.”
+
+
+
+#### Weekend profile: Changpeng Zhao, boss of Binance
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap354.jpg)
+
+PHOTO: REUTERS
+The implosion of FTX, until recently a major crypto exchange, has left plenty of people with egg on their faces. But one crypto giant has emerged stronger—at least for now. Binance has cemented its status as the world’s largest cryptocurrency exchange. And Changpeng Zhao, its 45-year-old co-founder and boss, has triumphed. The crypto crash may have taken its toll on Mr Zhao’s fortune, but he is still worth a cool $17bn.
+
+Mr Zhao was born in China in 1977. When he was 12 his family, facing repression at home, fled to Canada. But after studying computer science at McGill University in Montreal, Mr Zhao returned to China. In 2015, convinced that bitcoin “would do to finance what the internet would do to information,” he launched Bijie Tech, which offered software to crypto exchanges, in Shanghai.
+
+China soon shut down all crypto exchanges, but Mr Zhao was undeterred, skirting Chinese restrictions by relocating to various hubs around Asia. In July 2017 he launched his own cryptocurrency exchange, Binance. Today dozens of billions of dollars worth of assets change hands each day on the platform; Binance usually takes a 0.1% fee for its trouble.
+
+The company has thrived thanks to Mr Zhao’s ruthless decision-making. At the height of the boom in ICOs (initial coin offerings) in 2017, Binance rushed to list the flurry of newly launched cryptocurrencies, as other exchanges dawdled. Earlier this month, after rumours of trouble emerged at FTX, Mr Zhao said that Binance would sell $600m-worth of an FTX token—a move that precipitated his rival’s cash crunch.
+
+A complete crash across the sector would probably obliterate Mr Zhao’s wealth, most of which is held in digital assets. And Binance faces other problems. Critics say Mr Zhao’s taste for “controlled chaos”, his reliance on a small inner circle and his ravenous appetite for growth have led to corner-cutting. The exchange’s history is peppered with damaging hacks and allegations of money-laundering. This week Mr Zhao promised more transparency and said Binance would prove that it has enough liquid assets to face any crisis. Yet as the crypto crash deepens and regulators come sniffing, the digital Teflon Man may not prove resistant to corrosion forever.
+
+
+
+#### Weekly crossword
+
+![img](https://cdn.espresso.economist.com/files/public/images/Espressocrossword_9.jpg)
+
+Our crossword is designed for experienced cruciverbalists and newcomers alike. Both sets of clues give the same answers, all of which feature in articles in this week’s edition of The Economist.
+
+Email all four answers by 9am BST on Monday to crossword@economist.com, along with your home city and country. We will pick randomly from those with the right answers and crown the winners in next week’s edition.
+
+November 19th edition
+
+Factual clues
+
+1 down A former golden boy (7-5)
+
+1 across Something that may be far older than anyone thought (6)
+
+2 across The key binding ingredient of Trumpism (5)
+
+3 across Where mobile bomb shelters are being installed (6)
+
+Cryptic clues
+
+1 down Ineffective altruist framed in bank restructuring? (7-5)
+
+1 across Audibly take pleasure in language (6)
+
+2 across Bug found in tangerines (5)
+
+3 across Close friend shot from inside city (6)
+
+![img](https://cdn.espresso.economist.com/files/public/images/XwordGrid_12_656_5.jpg)
+
+#### The winners of this week’s quiz
+
+![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_76.jpeg)
+
+Thank you to everyone who took part in this week’s quiz. The winners, chosen at random from each continent, were:
+
+Asia: Hyunwook Kim, Seoul, South Korea
+
+North America: Donald Rotzien, Greenwich, Connecticut, America
+
+Central and South America: Caio Priszculnik, São Paulo, Brazil
+
+Europe: Bruce Doy, Chelmsford, Britain
+
+Africa: Carin Tredoux, Kempton Park, South Africa
+
+Oceania: Dominic Harvey, Auckland, New Zealand
+
+They all gave the correct answers of: Dora Carrington, pigs, Barney’s, Snow Patrol and Clifford Irving. The theme is children’s television shows: “Dora the Explorer”, “Peppa Pig”, “Barney and Friends”, “Paw Patrol” and “Clifford the Big Red Dog”.
+
+
+
+
+
+> You don’t have to start from scratch to do something interesting.
+>
+> Jack Dorsey
+
+
+
+### November 21, 2022
+
+#### The world in brief November 21, 2022
+
+The world in brief
+Catch up quickly on the global stories that matter
+
+Updated 2 hours ago (00:46 GMT / 08:46 Hong Kong)
+
+
+
+Ukraine’s Zaporizhia power plant was hit by shelling on Saturday and Sunday, according to the International Atomic Energy Agency, which warned that such attacks risked causing a nuclear disaster. Russia and Ukraine blamed each other for the attack on the facility, which is in Russian-controlled territory. Rafael Grossi, the head of the IAEA, warned “whoever is behind this” that “you’re playing with fire”.
+
+COP27 in Egypt finally concluded on Sunday morning, 36 hours late, with delegates agreeing to establish a “loss and damage” fund to help those most affected by rising temperatures—something many thought impossible two weeks ago. That seemed to be broadly welcomed by environmental groups. They were less enthused by timid measures to curb the use of fossil fuels.
+
+A 22-year-old was named as a suspect in the Colorado shooting that killed at least five people and injured dozens more. Anderson Lee Aldrich is accused of opening fire at a gay nightclub before being stopped by local patrons. Joe Biden, America’s president, said that inequities that “contribute to violence against LGBTQI+ people” must be driven out.
+
+patron 顾客
+
+drive out 摈弃
+
+
+
+China’s defense ministry said it was willing to meet with America at a regional security summit in Cambodia this week. Talks between Lloyd Austin, America’s defense secretary and Wei Fenghe, his Chinese counterpart, would be the first military ones at a high level since China halted such communications after the visit of Nancy Pelosi, America’s House Speaker, to Taiwan in August.
+
+
+
+Beijing told the 3.5m residents of its most populous district to stay at home from Monday, in a bid to contain rising covid-19 infections. China’s capital reported 516 new infections as of 3pm on Sunday, as well as the death of an 87-year-old man, China’s first known covid fatality since May 26th. The government recently announced a slight easing of its most draconian covid-control policies.
+
+draconian 严酷的
+
+
+
+Donald Trump’s Twitter account was reactivated after Elon Musk, Twitter’s new boss, ran a poll on the social-media platform asking users whether the former president should be allowed back. They narrowly voted “yes”. Mr Trump, who was banned in the wake of the Capitol riot in 2021, snubbed the gesture. He had said that he will remain on Truth Social, his own platform.
+
+
+
+
+
+Qatar had a disappointing start to the World Cup. The hosts lost 2-0 to Ecuador in the opening night of the tournament. It is the first time a host country has lost an opening match in the history of the World Cup. The upset was witnessed by Tamim bin Hamad Al Thani, Qatar’s emir, other royals and a crowd of 60,000 people.
+
+emir 埃米尔（对某些穆斯林统治者的尊称）
+
+
+
+#### Fact of the day: 
+
+**90%**, the percentage of its revenue that FIFA makes from the World Cup. 
+
+
+
+#### The long road ahead for Evergrande
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap360.jpg)
+
+PHOTO: GETTY IMAGES
+On Monday a plot of land in Shenzhen, a city in south China, will go up for auction. It was supposed to be the new headquarters for Evergrande. But thoughts of a shiny new office are far off for the struggling Chinese property developer. The company is months behind schedule for releasing a plan on restructuring its massive debts. The group, which has some $300bn in liabilities, has been the bellwether for China’s embattled property industry. It defaulted in December, promising to produce a restructuring plan within six months. But investors remain in the dark.
+
+The Chinese government recently announced measures that will help distressed property firms. Bank loans for some companies that were due in the next six months can now be extended. But it is unclear how much this will help Evergrande, which is still being forced to hock assets, such as the land in Shenzhen, to avoid collapse.
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221126_DAC819.jpg)
+
+
+
+#### After COP27, hopes for climate mitigation look to Dubai
+
+![img](https://cdn.espresso.economist.com/files/public/images/000_32NZ9K8.jpg)
+
+After the tortuous brokering of COP27 finally ended, Frans Timmermans, the EU’s lead negotiator, took to the floor. “Tomorrow,” he told delegates, “we start preparing for COP28”. Like many, Mr Timmermans was disappointed that the summit in Egypt did not go further to reduce greenhouse-gas emissions. He also stressed the need for countries at the next conference—which will be held in Dubai in November 2023—to make a firm commitment to reduce their use of all fossil fuels.
+
+That might be tricky. Oil and natural gas power the economy of the United Arab Emirates, the next host. Alongside other petrostates, it fought to stop fossil fuels from being discussed more highly in Sharm el-Sheikh. And although the biggest breakthrough at COP27 was the agreement to establish a “loss and damage” fund to help vulnerable countries recover after disasters, the details of how that fund might operate will now have to be agreed.
+
+
+
+#### Twitter’s mass unfollowing
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap362.jpg)
+
+PHOTO: GETTY IMAGES
+Soon after becoming Twitter’s owner, chief executive and only board member on October 27th, Elon Musk ordered staff to stop working from home and get back to the office. Last Thursday they received an email announcing, without explanation, that the firm’s San Francisco headquarters were closed. On Monday the office will re-open. The question is how many staff will come back.
+
+If Mr Musk’s three weeks in charge have looked chaotic from the outside (the latest: reinstating Donald Trump’s account, following an online poll), internally they have been even bumpier. He sacked half the employees in his first week, and later laid off contractors moderating content. Last week he ordered remaining staff to re-commit to “extremely hardcore” work, or leave. Many reportedly walked.
+
+Twitter had been over-staffed, relative to peers. But the scale and speed of the exodus is destabilising. Mr Musk warned recently that Twitter could run out of money. Before that it may run out of people.
+
+
+
+#### Kosovo and Serbia look for a deal
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap366.jpg)
+
+PHOTO: GETTY IMAGES
+Albin Kurti, Kosovo’s prime minister, and Aleksandar Vucic, Serbia’s president, meet in Brussels on Monday as the EU seeks to calm the latest tensions between the Balkan neighbours. The meeting coincides with a deadline set by Kosovo for drivers in mostly ethnically Serb areas to ditch Serbia-issued licence plates, or face a fine when driving in Kosovo.
+
+Kosovo, where the majority of people are ethnic Albanians, declared independence from Serbia in 2008. Although 117 countries recognise it internationally, Serbia does not. The latest spat, which has prompted Kosovo Serbs to quit some of the country’s institutions, has only increased tensions.
+
+Even if Messrs Kurti and Vucic can cobble together a deal on number plates, more needed is an agreement on major issues such as the proposed creation of an “association” of Kosovo Serb municipalities. But that would require unpopular political risks, which neither leader is willing to take.
+
+
+
+#### In “Glass Onion”, Hollywood targets the mega-rich
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap364.jpg)
+
+PHOTO: JOHN WILSON/NETFLIX © 2022
+In 2019 Rian Johnson, a director, introduced viewers to the camp murder mystery of “Knives Out”, starring Daniel Craig as Benoit Blanc, a detective extraordinaire, sniffing out a killer in a clique of entitled snobs in Massachusetts. Now Mr Johnson is back with “Glass Onion: A Knives Out Mystery,” another mind-bendingly intricate whodunnit starring Mr Craig, this time set on a private Greek island.
+
+Mr Johnson’s delightfully colourful and clever comedy, which is released in America and Britain on November 23rd, is part of an intriguing trend. Two other recent releases have crass multi-millionaires getting their bloody comeuppance on small islands: “The Menu”, starring Ralph Fiennes as a vengeful celebrity chef, and “Triangle Of Sadness”, the winner of the Palme d’Or at this year’s Cannes Film Festival.
+
+Hollywood has tended to revere the super-rich, but now it seems that the knives are out.
+
+
+
+#### Daily quiz
+
+![img](https://cdn.espresso.economist.com/files/public/images/20220218_OPD004_hq_56.jpg)
+
+Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
+
+Monday: Blood-, grey- and fox- are all followed by which suffix?
+
+
+
+> **We should be considerate to the living; to the dead we owe only the truth.**
+>
+> Voltaire
+
+
+
+### November 22, 2022
+
+#### The world in brief November 22, 2022
+
+The world in brief
+Catch up quickly on the global stories that matter
+
+Updated 5 hours ago (23:00 GMT / 07:00 Hong Kong)
+
+America said it was likely that Russians “all the way up the chain of command” were responsible for war crimes in Ukraine. Beth Van Schaack, the state department’s war-crimes monitor, called the situation a “new Nuremberg moment” and said Russian troops had probably committed war crimes in “every region” where they have been deployed. Reports of Ukrainian soldiers summarily executing Russians were also being investigated, she said.
+
+Saudi Arabia’s energy minister denied rumours that OPEC+ is considering raising output at its meeting early next month. After the Wall Street Journal reported that the cartel and its allies might increase production by 500,000 barrels a day, oil prices shed 6%, before rebounding. Last month OPEC+ agreed to cut output by 2m bpd.
+
+Ukraine came close to nuclear disaster as shells hit near reactors and radioactive waste storage facilities at the Zaporizhia power plant on the weekend, according to the International Atomic Energy Agency. Russia and Ukraine blamed each other for the attack on the facility, which is in Russian-controlled territory. Volodymyr Zelensky said that Russian forces launched almost 400 strikes on eastern Ukraine on Sunday.
+
+Turkey’s president, Recep Tayyip Erdogan, said that “ground forces” could be used in an incursion into Kurdish-controlled Syria in retaliation for a deadly attack in Gaziantep, a Turkish province. Mortar shells fired from northern Syria on Monday killed two people. Cross-border tensions escalated after Turkish air raids on Kurdish militants in Syria on Sunday in response to a bomb attack in Istanbul last week.
+
+A shallow 5.6-magnitude earthquake hit Java, Indonesia’s most-populated island, on Monday killing at least 162 people and injuring hundreds more. Dozens of buildings were reduced to rubble in the densely-populated Cianjur region, which is 75km southeast of Jakarta, the capital. People were evacuated amid a risk of landslides.
+
+Two Estonian men were arrested and indicted by American prosecutors for allegedly defrauding investors of $575m in a crypto Ponzi scheme. According to the indictment, the men charged customers for a share of profits from a nonexistent crypto-mining operation. The defendants “capitalised on both the allure of cryptocurrency, and the mystery surrounding cryptocurrency mining”, said prosecutors.
+
+The football associations of seven European countries told their captains not to wear “OneLove” armbands, promoting sexual equality, at the World Cup in Qatar. Players had been prepared to pay fines for doing so but FIFA, football’s governing body, threatened yellow cards. Gay sex is illegal in Qatar. The tournament opened on Sunday with a 2-0 drubbing of the host country by Ecuador.
+
+#### Fact of the day: 
+
+**37%**, the share of international sporting events hosted by autocracies since 2012. 
+
+
+
+#### Kamala Harris showboats in the Philippines
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap305.jpg)
+
+PHOTO: AP
+America’s vice-president is in the Philippines. After meeting on Monday with the country’s president, Ferdinand Marcos junior, on Tuesday Kamala Harris will visit Palawan, an island on the front line of a struggle for maritime dominance. It is to the west and north of Palawan that America’s navy conducts “freedom of navigation” missions around the disputed South China Sea, most of which China claims as its own. China and the Philippines also squabble over fishing and oil-and-gas rights within the 200-nautical-mile Philippine “exclusive economic zone”.
+
+To manage the Chinese navy, coastguard and fishing fleet without overly riling it, the Philippines deploys its civilian coastguard rather than its (rather feeble) navy. Ms Harris’s visit will include a spell aboard such a Philippine boat, albeit safely outside waters claimed by China. That is intended to communicate America’s readiness to help the Philippines defend itself from armed attack. China, irked by such commitments, may find a way to signal its disapproval for Ms Harris’s showboating.
+
+
+
+#### Europe’s economies brace for a fall
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap308_0.jpg)
+
+PHOTO: GETTY IMAGES
+There is a bout of optimism around the EU economies these days. Quarterly GDP figures released last week were not as bad as expected, employment continued to grow and, crucially, energy prices on wholesale markets have come down from their summer highs. On Tuesday the OECD, an intergovernmental research body, will add its assessment of Europe’s economic outlook.
+
+The elation may be premature. Energy prices have fallen but remain high, straining businesses that have ticked along thanks to a post-pandemic economic rebound. Long-term contracts with gas and electricity suppliers have cushioned the blow this year—but in 2023 the full effect of energy price rises will be felt.
+
+A second worry is the hit to the incomes of European households. A post-pandemic cushion of savings buoyed consumption, and the risk of unemployment remains low. But that may not last either. The billions of euros Europe’s governments have dispensed to firms and households may not prevent Europe from tumbling into recession.
+
+![](https://cdn.espresso.economist.com/files/public/images/20221126_DAC830_0.jpg)
+
+#### Iranians continue their lethal protest
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap307.jpg)
+
+PHOTO: PA
+Death has galvanised protest for more than two months in Iran. Unrest began in mid-September when Mahsa Amini, a young woman detained by the morality police, died in custody. Whenever protests seemed to ebb, more killings sent people back to the streets. So it was in recent days, after Kian Pirfalak, a nine-year-old boy, was shot by security forces. His funeral drew large crowds.
+
+The regime has arrested thousands and issued a handful of death sentences. In the past week it detained two actresses who removed their headscarves in public. But it has not been able to stop the scattered, leaderless unrest. There have been periodic strikes across the country, including in Tehran’s famed bazaar. Before their opening World Cup match against England on Monday Iran’s team refused to sing the national anthem. Ehsan Hajsafi, the captain, has already said he “sympathises” with the protesters—an act of defiance on the world’s biggest stage.
+
+
+
+#### Cyril Ramaphosa visits Britain
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap303.jpg)
+
+PHOTO: GETTY IMAGES
+King Charles III will host his first state visit as Britain’s monarch on Tuesday. It will offer his guest, Cyril Ramaphosa, South Africa’s president, welcome respite from politics at home.
+
+For on Tuesday Mr Ramaphosa will also learn how many nominations he has received to continue leading South Africa’s ruling African National Congress, ahead of a vote at the party’s national conference next month. Although he is expected to have a solid lead over his rivals, the ANC has acquired a habit of defenestrating sitting presidents.
+
+Mr Ramaphosa may enjoy discussing with the King shared interests such as wildlife and the environment. His conversations with Rishi Sunak, Britain’s prime minister, on Wednesday will be less convivial. Britain is unhappy with South Africa’s refusal to condemn Russia for its invasion of Ukraine. Mr Ramaphosa, in turn, is expected to press for Britain and its allies to lift sanctions on Zimbabwe and to offer Africa more aid and investment to deal with climate change.
+
+
+
+#### The history of an American siege
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap304.jpg)
+
+PHOTO: AP
+In “American Caliph”, a book published on Tuesday, Shahan Mufti, an American journalist, tells the extraordinary, and largely forgotten, story of what is still the largest-ever hostage-taking in America.
+
+In 1977 the Hanafis, a black Muslim group based in Washington, DC, took nearly 150 people hostage in three buildings near the White House. The siege, masterminded by Hamaas Abdul Khaalis—who styled himself as an American Caliph or leader of America’s Muslims—was intended to stop the release of a film Hanafis considered blasphemous, and as revenge for the murder of several members of Khaalis’s family by the Nation of Islam, a rival group. Two hostages died.
+
+Mr Mufti weaves wider historical events into his story, such as Malcolm X’s assassination and new laws that facilitated Muslim immigration to America. These elements supply the rich context of a saga that builds in tension until the last gripping moments. The reader is left wondering how this extraordinary tale could have been neglected for so long.
+
+
+
+#### Daily quiz
+
+![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_37_31.jpeg)
+
+Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
+
+**Tuesday:** The French novel “Les Liaisons Dangereuses” was remade as a teenage movie drama in 1999 with which title?
+
+**Monday:** Blood-, grey- and fox- are all followed by which suffix?
+
+
+
+> **We must believe in free will—we have no choice.**
+>
+> Isaac Singer
