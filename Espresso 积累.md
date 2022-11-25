@@ -5752,3 +5752,232 @@ Our baristas will serve you a new question each day this week. On Friday your ch
 > **Those who trust us educate us.**
 >
 > George Eliot
+
+
+
+### November 24, 2022
+
+#### The world in brief November 24, 2022
+
+The world in brief
+Catch up quickly on the global stories that matter
+
+Russia’s strikes on Ukrainian infrastructure caused mass blackouts, and obliged officials to remove three nuclear power plants from the national grid as a precautionary measure. The western city of Lviv was left “without light” and had “interruptions” to its water supply, according to its mayor. Rockets killed three people in Kyiv, the capital. Meanwhile, Moldova, which borders Ukraine to the east, also experienced a “massive” outage that left over half of the country without power, according to its government.
+
+A “substantial majority” of Federal Reserve policymakers said it would be appropriate to slow the pace of monetary tightening, according to minutes released on Wednesday from their meeting earlier this month. Investors foresee interest rates rising by half a percentage point when America’s central bank meets in December, following four consecutive three-quarter-point increases.
+
+Leaders from the Democratic Republic of Congo, Rwanda and several other African countries agreed to a ceasefire starting on Friday in eastern Congo, following a spate of attacks by the M23 rebel group. Troops from Kenya, Uganda and elsewhere in east Africa will enforce the deal. Congo accuses Rwanda of supporting M23, and recently expelled the Rwandan ambassador.
+
+Georgia’s supreme court reinstated a ban on abortion at about six weeks’ gestation—before many women even know that they are pregnant. Thirteen states have outlawed the procedure in nearly all instances since Roe v Wade was overturned. And yet Americans are not particularly keen on such restrictions: abortion-rights supporters won several victories at the midterms.
+
+Judges from Britain’s Supreme Court ruled that Scotland’s devolved parliament cannot pass a law calling for a referendum on independence without the approval of Britain’s government. Scotland’s first minister, Nicola Sturgeon, argues that the result of a referendum in 2014, in which Scots rejected independence, is out of date. But the government in Westminster does not want another vote.
+
+International tourism will reach 65% of pre-pandemic levels by the end of 2022, according to the World Tourism Organisation, a UN agency. The lifting of covid-19 restrictions led to a holiday boom this year, with over double the number of foreign trips between January and September compared with the same period in 2021. A gloomy global economic outlook may yet weaken the industry’s recovery.
+
+Twin bomb attacks on Jerusalem’s bus network during rush hour killed one and injured at least 18 people. Israeli police blamed the explosions on Palestinian militants, though no group has yet claimed responsibility. The blasts, which are the first bomb attacks on Israeli civilians since 2016 according to local police, follow months of heightened Israeli-Palestinian tensions.
+
+#### Fact of the day: 
+
+**$63bn**, the amount that firms have raised from IPOs on Chinese exchanges this year, compared with $21bn in New York. 
+
+
+
+#### South Korea’s economic quagmire
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap324.jpg)
+
+PHOTO: GETTY IMAGES
+When the Bank of Korea’s monetary policy committee meets on Thursday Rhee Chang-yong, its governor, is expected to raise its interest rate above the current level of 3%. Failure to keep up with America’s Federal Reserve, which hiked rates to 3.75% on November 2nd, could trigger capital flight from South Korea, further weakening the won.
+
+But increasing rates also carries risks. Bond markets have been in turmoil for almost two months since the governor of Gangwon province refused to pay back creditors who bought bonds issued to fund the construction of Legoland, an amusement park. A U-turn from the Gangwon government, and a liquidity injection into the corporate-bond market, did little to calm investors. With personal debt levels high, the central bank is under pressure to keep rates steady to avoid defaults and fend off a recession. Mr Rhee has warned of “growing signs of stress”. He may be talking about himself as much as the economy.
+
+
+
+#### Opening Donald Trump’s Mar-a-Lago documents
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap327.jpg)
+
+PHOTO: AP
+Since August Donald Trump has sought to thwart a government probe into classified documents that the FBI seized from his home in Florida. The former president’s lawyers had early success in persuading a district-court judge to restrict investigators’ access to the documents and appoint an independent reviewer, known as a “special master”, to screen them for material protected by executive privilege.
+
+But on appeal the case has trended against Mr Trump. Following a hearing on Tuesday at the 11th Circuit Court of Appeals—where judges were sceptical that courts should “interfere with the executive branch’s ongoing investigation” in a criminal matter—the skirmishing seems likely to end in the justice department’s favour. A ruling giving investigators access to the documents could come at any time after Thanksgiving.
+
+Last week Merrick Garland, the attorney-general, named Jack Smith as special counsel to take on both the Mar-a-Lago documents and Mr Trump’s role in the January 6th insurrection. A quick ruling could sweep a major obstacle from Mr Smith’s path.
+
+
+
+#### The EU squabbles over an energy price cap
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap329.jpg)
+
+PHOTO: GETTY IMAGES
+Another month, another packed agenda for EU energy ministers as they meet on Thursday. A warm autumn has offered some respite from dizzying wholesale energy prices. But policymakers are already bracing for a difficult 2023.
+
+The main topic of discussion is a cap on the price of gas used to generate electricity, proposed by the European Commission on Tuesday. Opponents, notably gas-dependent Germany, fear that such a cap may lead suppliers to reduce shipments to Europe, thus intensifying the energy crisis. But advocates of a cap are not thrilled with the commission’s proposal either. The ceiling is set at a lofty €275 ($284) per megawatt-hour, and would apply only when European wholesale prices diverge from those of global liquefied natural gas (as they did over the summer). Another proposal on the table is to speed up the rollout of renewable energy to reduce Europe’s dependence on gas. That is less controversial, and probably a lot more effective.
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221126_dac871.jpg)
+
+
+
+#### A fundraising tour for Cuba’s president
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap330.jpg)
+
+PHOTO: DAVE SIMONDS
+On Thursday Cuba’s Communist president, Miguel Díaz-Canel, will land in China to ask its president, Xi Jinping, for economic help. His rare trip abroad—which also took him to Algeria, Russia and Turkey—is a sign of desperation. The gradual deterioration of Cuba’s economy under six decades of dictatorship has been exacerbated by tighter American sanctions during Donald Trump’s administration, the pandemic, and now inflation. Food is scarce and expensive, and power outages afflict Havana, the capital.
+
+Yet Mr Díaz-Canel has reason for optimism. His four hosts may find that footing a moderate bill to help 11.3m Cubans is worth it to poke a stick at America. Algeria’s government, for example, has already agreed to export oil and gas to Cuba and donate a solar plant. China may also consider restructuring or even forgiving Cuban debt, and could offer technical assistance in energy and farming. But despite such relief, until the Communist Party loosens its grip, Cuba will be forced to depend on its allies.
+
+
+
+#### Volodymyr Zelensky, speechmaker
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap328.jpg)
+
+PHOTO: GETTY IMAGES
+After Russia’s invasion, the speeches of Volodymyr Zelensky, Ukraine’s president, were beamed to parliaments, award ceremonies and front pages around the world. A new collection of Mr Zelensky’s speeches will be published on Thursday. Proceeds from its sales will go to “United24”, an initiative that channels donations to the Ukrainian state itself.
+
+“A Message from Ukraine” includes 16 speeches, spanning Mr Zelensky’s hopeful inauguration in 2019 to his wartime call to arms in 2022. (It also features a preface by The Economist’s Russia editor.) The collection displays the president’s firm grasp on the emotions of his audience—a skill honed during his earlier career as an actor and comedian. And it showcases Mr Zelensky’s well-chosen historical references, designed to suit the audience of the day. Speaking to Britain’s parliament, he echoes Winston Churchill; to the German Bundestag, he invokes the Berlin Wall. Before the war, many thought Mr Zelensky’s backstory made him unsuitable for office. Now his experience as an entertainer seems his greatest strength.
+
+
+
+#### Daily quiz
+
+![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_37_33.jpeg)
+
+Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
+
+Thursday: Which children’s toy was named after the 26th president of America?
+
+Wednesday: Which marsupial featured as a ferocious Warner Brothers cartoon character?
+
+
+
+> **War is a series of catastrophes that results in a victory.**
+>
+> Georges Clemenceau
+
+
+
+### November 25, 2022
+
+#### The world in brief November 25, 2022
+
+Catch up quickly on the global stories that matter
+
+Updated 1 hour ago (21:57 GMT / 05:57 Hong Kong)
+
+Hungary’s prime minister, Viktor Orban, said his country’s parliament will ratify Finland and Sweden’s accession to NATO early next year, a move that would leave only Turkey yet to approve the Nordic countries’ membership. Meanwhile, Ukraine continued to reckon with the consequences of Russia’s strikes on its infrastructure, which caused mass blackouts. The head of Ukraine’s nuclear agency, Energoatom, said the strikes risked “catastrophe” after the Zaporizhia nuclear plant was again disconnected from the national grid. Earlier Ukraine’s president, Volodymyr Zelensky, accused Russia of “crimes against humanity”, while addressing the UN Security Council.
+
+The European Commission’s proposals for a cap on gas prices met a frosty response at a meeting of EU energy ministers, who will gather in December to agree on a plan. The EC’s proposal included capping prices only when they exceeded €275 ($284) per megawatt-hour, and if European prices diverged from those of global LNG. Poland’s climate minister, Anna Moskwa, called the plan a “kind of joke”.
+
+The UN’s Human Rights Council launched an investigation into Iran’s lethal crackdown on the protests that have engulfed the country since mid-September. The council voted to establish an international fact-finding mission to probe allegations of what the UN’s human-rights chief called “unnecessary and disproportionate use of force”. An estimated 400 Iranians have been killed, and some 15,000 arrested, amid protests sparked by the death in custody of Mahsa Amini, who was arrested for not “properly” wearing her hijab.
+
+The king of Malaysia chose Anwar Ibrahim to become the country’s prime minister, after an election on November 19th resulted in a hung parliament. Malaysians waited five days for a new leadership to emerge, as the incumbent coalition failed to make an alliance with its rising challengers. Mr Anwar waited for much, much longer. The 75-year-old has led Malaysia’s opposition as a liberal-democratic reformer for most of his career, including years spent in prison.
+
+Russia’s parliament passed a law that broadens the scope of an existing ban on promoting “LGBT propaganda” to children. The ban will now pertain to information disseminated to anyone, regardless of age. Russia’s LGBT communities have long suffered persecution from the authorities, who cast the new legislation as a defence of traditional values in contrast with Western decadence.
+
+Twitter shut its office in Brussels, sparking fears among EU officials that the social-media platform will not follow EU rules on moderating online speech, as the fallout from Elon Musk’s takeover continues. Before he bought Twitter Mr Musk suggested he wanted to reduce its moderation rules in order to create a digital “public sphere” that enshrines free speech.
+
+Data from America’s Department of Agriculture show that a record 50.5m birds had been wiped out by the deadliest outbreak of avian influenza in the country’s history. Officials date the start of the outbreak to February; since then, commercial and backyard flocks of chickens, turkeys and other birds have been infected in 46 states. The outbreak caused turkey prices to soar in the run-up to the Thanksgiving holiday.
+
+#### Fact of the day: 
+
+**1.4m**, the number of homes that Hornsea 2, the world’s largest wind farm, can power. 
+
+
+
+#### Hong Kong’s Catholics under threat
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap336.jpg)
+
+PHOTO: GETTY IMAGES
+On Friday Cardinal Joseph Zen, a former Bishop of Hong Kong, will be sentenced for the crime of raising money for pro-democracy protesters. Unlike many of the people he helped—more than 1,000 have been sentenced to prison—the 90-year-old is likely to get only a fine. Cardinal Zen’s hopes for democracy in Hong Kong, shared by many of the territory’s Catholics, were crushed by China’s Communist Party. Now the party is going after their faith, too.
+
+On the mainland China’s regime increasingly exerts control over Catholic churches, in part by pressuring them to register with the government. Clergy at registered churches must impart Communist Party doctrine to parishioners. A secret deal signed in 2018 by China and the Vatican is thought to give the party authority to nominate bishops.
+
+The “sinicisation” of Catholicism has now reached Hong Kong. Catholic missionaries in the city say that mainland-style control is coming. One priest from Hong Kong says that churches there will remain open, but only cowed believers will worship in them.
+
+
+
+#### Bangladesh fires up a new coal plant
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap337.jpg)
+
+PHOTO: AP
+On Friday a new coal-fired power station will begin operating in southern Bangladesh. The project sits 14km from the Sundarbans, the world’s largest mangrove forest and a UNESCO heritage site. The plant, which cost $2bn to build, will burn 5m tonnes of coal each year. Bangladesh’s government hailed it as a symbol of co-operation with neighbouring India, the project’s main financier. But the plant is controversial: environmentalists opposed it and demanded that private banks not fund it, partly because of the threat it poses to the forest.
+
+Bangladesh’s energy policy is cleaner than this fiasco suggests. Last year the government scrapped plans to construct ten coal-fired power stations after pressure from activists and trouble getting the necessary investments. It has instead focused largely on building natural-gas and nuclear plants. But domestic gas reserves are declining and imports are expensive. Regular blackouts—last month more than 100m people were plunged into darkness—may also slow Bangladesh’s transition away from the world’s dirtiest fuel.
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221126_DAC882.jpg)
+
+
+
+#### Businesses brace for a bad Black Friday
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap339.jpg)
+
+PHOTO: GETTY IMAGES
+Black Friday, when retailers around the world offer a dizzying array of discounts, usually marks the beginning of a merry season of frenzied consumerism. This year may be different. In October retail sales in America were higher than expected, but sales of electronics and various other discretionary goods continued to fall as consumers’ wallets were squeezed by inflation. That may spell trouble for businesses banking on an orgy of overindulgence.
+
+To lure customers, American retailers have introduced deeper Black Friday discounts than in previous years. But even after these deals, inflation still makes many products more expensive than last year’s shopping season. And because their bank accounts are no longer bulked up by savings made during the early months of the pandemic, shoppers have less to splurge.
+
+The football World Cup may squeeze sales further. With America and England playing each other on Friday, consumers have yet another reason to steer clear of the crowds of bargain-hunters.
+
+
+
+#### Rebels without a pause
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap338.jpg)
+
+PHOTO: GETTY IMAGES
+The east of Congo is home to one of the world’s forgotten wars. Or, rather, to many forgotten wars. More than 100 militias operate in the region, mostly local groups fighting for land and commodities. But one, M23, is more disruptive than others—over the past year it has seized towns and killed dozens of people. Congo and the UN reckon the group is backed by Rwanda, and that its attacks are part of a broader contest for power in the Great Lakes, a region of 100m people across Congo, Rwanda and Uganda.
+
+On Wednesday regional leaders meeting in Angola gave M23 an ultimatum: if a ceasefire is not in place in eastern Congo by 6pm local time on Friday, then Kenyan-led troops may force M23 to lay down arms. Even Rwanda’s foreign minister signed the statement calling for peace. But Congolese—who have endured more than three decades of violence—will believe it only when they see it.
+
+
+
+#### Another outing for Lady Chatterley’s Lover
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap340.jpg)
+
+PHOTO: SEAMUS RYAN/NETFLIX
+In “Lady Chatterley’s Lover” the heroine wishes for men to “leave [her] alone”. Film-makers seem unwilling to do the same to D.H. Lawrence’s final novel, first published in 1928 (obscenity laws meant that uncensored copies weren’t sold in America and Britain for another 30 years). The book—detailing the affair of an aristocrat and her gamekeeper—has been repeatedly adapted in the decades since.
+
+The latest version, made for Netflix, will appear in cinemas in America and Britain from Friday and on the streaming service in December. Laure de Clermont-Tonnerre, the film’s French director, is not the first to apply a feminist lens to the story. In 2006 Pascale Ferran, another French director, was lauded for focusing on Lady Chatterley’s perspective (writers including Simone de Beauvoir had previously taken Lawrence to task for his patriarchal pomposity). Ms Clermont-Tonnerre’s take also focuses on the environment, championing the natural world that “mechanised greed” has ruined. What was once seen as simply blue is cast in a more modern shade of green.
+
+
+
+#### Daily quiz
+
+![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_77.jpeg)
+
+Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
+
+Friday: Which counterculture festival takes place in Nevada in late August and early September?
+
+Thursday: Which children’s toy was named after the 26th president of America?
+
+The winners of last week’s crossword
+
+Thank you to everyone who took part in our new weekly crossword, published in the weekend edition of Espresso. The winners, chosen at random from each continent, were:
+
+Asia: Rajesh Ramam, Singapore
+
+North America: Rebecca Clements, Toronto, Canada
+
+Central and South America: Ramon Azpurua, Caracas, Venezuela
+
+Europe: Jean Francois Duffour, Coublieve, France
+
+Africa: Gustav Melck, Pretoria, South Africa
+
+Oceania: Richard Lyon, Greenwich, Australia
+
+They all gave the correct answers of Bankman-Fried, Basque, anger and Dnipro. Check back tomorrow for this week’s crossword.
+
+
+
+> Every human being, of whatever origin, of whatever station, deserves respect.
+>
+> U Thant
