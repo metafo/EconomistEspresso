@@ -1,0 +1,72 @@
+The world in brief
+Catch up quickly on the global stories that matter
+
+Updated less than 1 hour ago (04:50 GMT / 12:50 Hong Kong)
+
+Protesters in Shanghai again took to the streets on Sunday night, finishing a weekend of angry demonstrations against China’s draconian anti-covid measures. Some clashed with police, others held aloft blank pieces of paper or placards containing the Friedmann equation—making a mathematical pun to condemn the absence of free speech. Similar protests proliferated across much of China, including Beijing and Wuhan. Asian stockmarkets fell at the prospect of further unrest and President Xi Jinping’s response to it. At the same time, the number of new infections reported hit a record 40,000.
+
+Snow and freezing temperatures descended on Kyiv, Ukraine’s capital, where millions of people have only limited access to electricity, water and heat. Russian missiles have pulverised much of Ukraine’s energy infrastructure, though power has been returned to some homes in newly liberated Kherson. Meanwhile Ukrainian officials indicated that Russian forces might be preparing to withdraw from the Zaporizhia nuclear power plant, which they have occupied since March.
+
+Mélanie Joly, Canada’s foreign minister, unveiled a C$2.3bn ($1.7bn) strategy for the Indo-Pacific on Sunday. The aim is to expand Canada’s military presence in the region to counter “disruptive” Chinese influence, as well as diversify trade. Canada will also tighten its rules on inward foreign investment in an attempt to stop China buying up its minerals.
+
+Tens of thousands of people marched in Mexico City to show their support for Andrés Manuel López Obrador, the country’s president. Mr López Obrador organised the rally to mark his fourth year in office. But it is also probably an attempt to show off his popularity—he has an approval rating of nearly 60%—after his plans to reform Mexico’s electoral system triggered protests.
+
+Supporters of Imran Khan, the ousted former president of Pakistan, on the outskirts of the capital, Islamabad. It was Mr Khan’s first show of strength since he survived an assassination attempt earlier this month. The former cricket star called off a planned march into Islamabad, for fear of causing havoc, he said.
+
+Yoweri Museveni, Uganda’s president, extended the quarantine of two districts in Central Uganda to try to stop the spread of the Ebola virus. Mubende and Kassanda are at the centre of an outbreak that was declared on September 20th—they will now remain locked down until December 17th. The strain of Ebola circulating in Uganda is rare and there is no proven vaccine.
+
+Football World Cup: On Sunday Morocco shocked Belgium, FIFA’s second-highest ranked team, with only their third-ever victory in a world cup. Despite struggling, Costa Rica triumphed over Japan with an 81st-minute goal. Germany remain the only winless team in their group, as they drew 1-1 with Spain.
+
+Fact of the day: 800%, the increase in Moderna’s share price since January 1st 2020. The vaccine-maker is the second-best-performing company in the S&P 500. Read the full story.
+
+Fury mounts over lockdowns in China
+
+PHOTO: GETTY IMAGES
+Residents of China’s cities return to work on Monday after a weekend of widespread protests against draconian “zero-covid” measures. Frustrations with months of lockdowns spread after a fire in Urumqi, in the western region of Xinjiang, left ten dead on Thursday. Many blamed covid restrictions for hindering fire-fighters and occupants who were trying to escape.
+
+On Saturday night demonstrators in Shanghai called for President Xi Jinping to step down—an extremely rare show of defiance. On Sunday night in Beijing crowds sang the “Internationale”, a socialist anthem, and mourned the deaths in Xinjiang. Students at several university campuses held up blank sheets of paper to highlight China’s lack of free speech.
+
+China’s rulers hate instability. But they are in a bind. The country is gripped by its biggest covid outbreak yet. Elderly people are made more vulnerable by low vaccination rates. Many Chinese people are clearly furious with public-health rules. Reintroducing restrictions will probably spark more unrest.
+
+In with the old at Disney
+
+PHOTO: ALAMY
+Staff of the Magic Kingdom will gather on Monday morning for a virtual town-hall meeting with Bob Iger, who began a second stint as chief executive a week ago. Mr Iger ran Disney for 15 stellar years before stepping down in 2020. His successor, Bob Chapek, had a tougher time and was booted out on November 20th after quarterly results showed growing losses at Disney+, the company’s streaming service. Mr Iger will now try to steady the ship in two years.
+
+Investors are glad to have him back: Disney’s stock has risen since his return. And staff are mostly pleased that Mr Iger is undoing a centralising strategy initiated by Mr Chapek, handing power back to Disney’s creative teams. But the difficulties at Disney, and across Hollywood, run deeper. Streaming is undermining the cinema and cable industries and turning out to be less profitable than either. The new-old Bob will need more than new-old ideas.
+
+
+Judicial nominees on the Senate’s agenda
+
+PHOTO: GETTY IMAGES
+On Monday America’s Senate returns from its Thanksgiving break to debate the Respect for Marriage Act, a bill that would strengthen rights for same-sex couples. It will also consider some two dozen nominees for judgeships on federal courts and may hold votes on two district-court nominees.
+
+Both are women: Camille Vélez-Rivé in Puerto Rico and Anne Nardacci in New York. That is consistent with President Joe Biden’s previous appointments: of the 85 judges he has seated so far, including Ketanji Brown Jackson on the Supreme Court, just 21 are men. Nearly a quarter are African-American and two-thirds are non-white.
+
+The Democrats’ marginal majority in the Senate allowed Mr Biden to rapidly usher nominees into robes. If Raphael Warnock beats Herschel Walker (the Republican candidate) in a run-off election for Georgia’s seat on December 6th, Democrats will walk away from the midterms with 51 seats to the Republicans’ 49 (meaning Kamala Harris, the vice-president, will no longer be needed to break ties). This could speed things up further—and embolden Mr Biden to put forward more progressive nominees.
+
+The “real election” gets going in Chicago
+
+PHOTO: BLOOMBERG VIA GETTY IMAGES
+Monday is the last day when candidates can file to run for mayor of Chicago—dubbed the “real election” by locals after the midterms. Lori Lightfoot, the incumbent, is expected to wait until the last moment to do so. To participate, hopefuls must present at least 12,500 signatures from registered voters. The most successful traditionally manage many times that. In the sixties Richard J Daley, perhaps the most powerful American mayor, filed 500,000.
+
+Ms Lightfoot, who sees herself as a successor to Harold Washington, the city’s first black mayor, once said she had “the biggest dick in Chicago”. But she faces a tough re-election campaign, having come under fire for her policies on crime and policing, and her supposed neglect of the downtown. She will also be competing with at least six other candidates, including Jesús “Chuy” Garcia, a combative Mexican-American congressman. Chicago was once famous for “machine politics”, but established politicians can no longer mechanically turn out blocks of votes like before. This election is anyone’s game.
+
+AI outplays humans, again
+
+PHOTO: HASBRO
+Artificial intelligence has already trounced humans at backgammon, chess and Go. Now it can routinely win at Diplomacy, which for some aficionados is a truer marker of game-playing ability. Diplomacy, which sees players scrap for control of a pre-first world war Europe, is a very human pastime. Play demands collaboration but also allows for double-crossing.
+
+In a paper recently published in Science, researchers at Meta—Facebook’s parent company—explain how they created Cicero, a program that could play Diplomacy, and win. (It ranked in the top 10% of players in an online multi-game tournament.) Like all AI game-playing projects, Cicero learnt through reinforcement: making more selective moves as it was rewarded for positive outcomes.
+
+But Diplomacy also requires players to communicate with others well enough to implement their chosen strategy, whether treacherous or truthful. Thus Cicero also had to be trained to speak like a human player, using vast sets of language data. That it did so successfully proves an ability to negotiate, convince, co-operate and compete.
+
+Daily quiz
+
+Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 BST on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
+
+Monday: Which TV streaming service is named after the NBC logo?
+
+Little minds are tamed and subdued by misfortune; but great minds rise above it.
+
+Washington Irving
