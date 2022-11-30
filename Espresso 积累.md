@@ -6142,3 +6142,323 @@ They all gave the correct answers of Hound, Cruel Intentions, Tasmanian Devil, t
 >
 > Jimi Hendrix
 
+
+
+### November 28, 2022
+
+#### The world in brief November 28, 2022
+
+Catch up quickly on the global stories that matter
+
+Updated less than 1 hour ago (04:50 GMT / 12:50 Hong Kong)
+
+Protesters in Shanghai again took to the streets on Sunday night, finishing a weekend of angry demonstrations against China’s draconian anti-covid measures. Some clashed with police, others held aloft blank pieces of paper or placards containing the Friedmann equation—making a mathematical pun to condemn the absence of free speech. Similar protests proliferated across much of China, including Beijing and Wuhan. Asian stockmarkets fell at the prospect of further unrest and President Xi Jinping’s response to it. At the same time, the number of new infections reported hit a record 40,000.
+
+Snow and freezing temperatures descended on Kyiv, Ukraine’s capital, where millions of people have only limited access to electricity, water and heat. Russian missiles have pulverised much of Ukraine’s energy infrastructure, though power has been returned to some homes in newly liberated Kherson. Meanwhile Ukrainian officials indicated that Russian forces might be preparing to withdraw from the Zaporizhia nuclear power plant, which they have occupied since March.
+
+Mélanie Joly, Canada’s foreign minister, unveiled a C$2.3bn ($1.7bn) strategy for the Indo-Pacific on Sunday. The aim is to expand Canada’s military presence in the region to counter “disruptive” Chinese influence, as well as diversify trade. Canada will also tighten its rules on inward foreign investment in an attempt to stop China buying up its minerals.
+
+Tens of thousands of people marched in Mexico City to show their support for Andrés Manuel López Obrador, the country’s president. Mr López Obrador organised the rally to mark his fourth year in office. But it is also probably an attempt to show off his popularity—he has an approval rating of nearly 60%—after his plans to reform Mexico’s electoral system triggered protests.
+
+Supporters of Imran Khan, the ousted former president of Pakistan, on the outskirts of the capital, Islamabad. It was Mr Khan’s first show of strength since he survived an assassination attempt earlier this month. The former cricket star called off a planned march into Islamabad, for fear of causing havoc, he said.
+
+Yoweri Museveni, Uganda’s president, extended the quarantine of two districts in Central Uganda to try to stop the spread of the Ebola virus. Mubende and Kassanda are at the centre of an outbreak that was declared on September 20th—they will now remain locked down until December 17th. The strain of Ebola circulating in Uganda is rare and there is no proven vaccine.
+
+Football World Cup: On Sunday Morocco shocked Belgium, FIFA’s second-highest ranked team, with only their third-ever victory in a world cup. Despite struggling, Costa Rica triumphed over Japan with an 81st-minute goal. Germany remain the only winless team in their group, as they drew 1-1 with Spain.
+
+
+
+#### Fact of the day: 
+
+800%, the increase in Moderna’s share price since January 1st 2020. The vaccine-maker is the second-best-performing company in the S&P 500. 
+
+
+
+Fury mounts over lockdowns in China
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap359.jpeg)
+
+PHOTO: GETTY IMAGES
+Residents of China’s cities return to work on Monday after a weekend of widespread protests against draconian “zero-covid” measures. Frustrations with months of lockdowns spread after a fire in Urumqi, in the western region of Xinjiang, left ten dead on Thursday. Many blamed covid restrictions for hindering fire-fighters and occupants who were trying to escape.
+
+On Saturday night demonstrators in Shanghai called for President Xi Jinping to step down—an extremely rare show of defiance. On Sunday night in Beijing crowds sang the “Internationale”, a socialist anthem, and mourned the deaths in Xinjiang. Students at several university campuses held up blank sheets of paper to highlight China’s lack of free speech.
+
+China’s rulers hate instability. But they are in a bind. The country is gripped by its biggest covid outbreak yet. Elderly people are made more vulnerable by low vaccination rates. Many Chinese people are clearly furious with public-health rules. Reintroducing restrictions will probably spark more unrest.
+
+
+
+#### In with the old at Disney
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap355.jpeg)
+
+PHOTO: ALAMY
+Staff of the Magic Kingdom will gather on Monday morning for a virtual town-hall meeting with Bob Iger, who began a second stint as chief executive a week ago. Mr Iger ran Disney for 15 stellar years before stepping down in 2020. His successor, Bob Chapek, had a tougher time and was booted out on November 20th after quarterly results showed growing losses at Disney+, the company’s streaming service. Mr Iger will now try to steady the ship in two years.
+
+Investors are glad to have him back: Disney’s stock has risen since his return. And staff are mostly pleased that Mr Iger is undoing a centralising strategy initiated by Mr Chapek, handing power back to Disney’s creative teams. But the difficulties at Disney, and across Hollywood, run deeper. Streaming is undermining the cinema and cable industries and turning out to be less profitable than either. The new-old Bob will need more than new-old ideas.
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_DAC891.jpg)
+
+
+
+#### Judicial nominees on the Senate’s agenda
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap361.jpeg)
+
+PHOTO: GETTY IMAGES
+On Monday America’s Senate returns from its Thanksgiving break to debate the Respect for Marriage Act, a bill that would strengthen rights for same-sex couples. It will also consider some two dozen nominees for judgeships on federal courts and may hold votes on two district-court nominees.
+
+Both are women: Camille Vélez-Rivé in Puerto Rico and Anne Nardacci in New York. That is consistent with President Joe Biden’s previous appointments: of the 85 judges he has seated so far, including Ketanji Brown Jackson on the Supreme Court, just 21 are men. Nearly a quarter are African-American and two-thirds are non-white.
+
+The Democrats’ marginal majority in the Senate allowed Mr Biden to rapidly usher nominees into robes. If Raphael Warnock beats Herschel Walker (the Republican candidate) in a run-off election for Georgia’s seat on December 6th, Democrats will walk away from the midterms with 51 seats to the Republicans’ 49 (meaning Kamala Harris, the vice-president, will no longer be needed to break ties). This could speed things up further—and embolden Mr Biden to put forward more progressive nominees.
+
+
+
+#### The “real election” gets going in Chicago
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap301.jpg)
+
+PHOTO: BLOOMBERG VIA GETTY IMAGES
+Monday is the last day when candidates can file to run for mayor of Chicago—dubbed the “real election” by locals after the midterms. Lori Lightfoot, the incumbent, is expected to wait until the last moment to do so. To participate, hopefuls must present at least 12,500 signatures from registered voters. The most successful traditionally manage many times that. In the sixties Richard J Daley, perhaps the most powerful American mayor, filed 500,000.
+
+Ms Lightfoot, who sees herself as a successor to Harold Washington, the city’s first black mayor, once said she had “the biggest dick in Chicago”. But she faces a tough re-election campaign, having come under fire for her policies on crime and policing, and her supposed neglect of the downtown. She will also be competing with at least six other candidates, including Jesús “Chuy” Garcia, a combative Mexican-American congressman. Chicago was once famous for “machine politics”, but established politicians can no longer mechanically turn out blocks of votes like before. This election is anyone’s game.
+
+
+
+#### AI outplays humans, again
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap364.jpeg)
+
+PHOTO: HASBRO
+Artificial intelligence has already trounced humans at backgammon, chess and Go. Now it can routinely win at Diplomacy, which for some aficionados is a truer marker of game-playing ability. Diplomacy, which sees players scrap for control of a pre-first world war Europe, is a very human pastime. Play demands collaboration but also allows for double-crossing.
+
+In a paper recently published in Science, researchers at Meta—Facebook’s parent company—explain how they created Cicero, a program that could play Diplomacy, and win. (It ranked in the top 10% of players in an online multi-game tournament.) Like all AI game-playing projects, Cicero learnt through reinforcement: making more selective moves as it was rewarded for positive outcomes.
+
+But Diplomacy also requires players to communicate with others well enough to implement their chosen strategy, whether treacherous or truthful. Thus Cicero also had to be trained to speak like a human player, using vast sets of language data. That it did so successfully proves an ability to negotiate, convince, co-operate and compete.
+
+
+
+#### Daily quiz
+
+![img](https://cdn.espresso.economist.com/files/public/images/EspressoQuiz2022_2.jpeg)
+
+Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 BST on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
+
+**Monday:** Which TV streaming service is named after the NBC logo?
+
+
+
+> Little minds are tamed and subdued by misfortune; but great minds rise above it.
+>
+> Washington Irving
+
+
+
+### November 29, 2022
+
+#### The world in brief November 29, 2022
+
+
+
+Catch up quickly on the global stories that matter
+
+Updated 6 hours ago (22:08 GMT / 06:08 Hong Kong)
+
+Wall Street slumped at the prospect that further unrest in China and rising covid-19 cases would slow its economy. The S&P 500 and the Dow Jones Industrial Average each shed 1.5%. After tens of thousands of Chinese people rallied against the country’s draconian anti-covid measures, the White House affirmed their “right to peacefully protest”. The number of new infections reported in China hit a record 40,000.
+
+Ukraine’s president, Volodymyr Zelensky, said that residents of the southern Kherson region endured 258 rounds of Russian shelling this past week alone. Millions of people have only limited access to electricity, water and heat after Russian missiles pulverised much of Ukraine’s energy infrastructure, including a pumping station providing water to Mykolaiv, a city north of Kherson.
+
+BlockFi, a crypto lender, filed for bankruptcy. The firm, valued at $4bn dollars at one point last year, failed to recover from the collapse of FTX, the crypto-trading platform that also went bankrupt earlier this month. Separately, Kraken, another crypto exchange, agreed to pay more than $360,000 to America’s treasury department for allowing transactions with users in Iran, in violation of sanctions.
+
+Talks between America and Russia on the “New START” treaty—meant to regulate their arsenals of strategic missiles—were postponed the day before they were due to start. America blamed Russia, accusing it of “unilaterally” calling off the summit scheduled to take place in Cairo, Egypt’s capital. The decision comes amid months of nuclear threats from President Vladimir Putin in response to Western support for Ukraine.
+
+Saudi Arabia unveiled plans to build a mammoth airport with six runways in Riyadh, the capital. It will serve as the hub for a yet-to-be-launched state airline called RIA to compete with Emirates, which is based in Dubai. The kingdom is keen to wean its economy off oil and boost tourism—the airport will be able to accommodate 120m passengers by 2030, if all goes to plan.
+
+Shell agreed to buy Europe’s largest biogas producer for nearly $2bn as it expands into renewables. Nature Energy, based in Denmark, produces biomethane, which is chemically identical to natural gas but is made from organic waste. In October BP, another oil major, agreed to pay more than $4bn for Archaea Energy, an American biogas producer.
+
+Football World Cup: Brazil scored in the 83rd minute to beat Switzerland 1-0. The winning goal came not from legendary Neymar, who is nursing a swollen ankle and has sat out two games, but from veteran midfielder Casemiro. Another superstar, Cristiano Ronaldo, claimed credit for Portugal’s opening goal in its 2-0 win against Uruguay; in fact Bruno Fernandes was responsible for both goals.
+
+
+
+#### Fact of the day: 
+
+**7m**, the number of people that have left Venezuela in the last decade, a quarter of the population. 
+
+
+
+#### What’s behind the selection of Pakistan’s new army chief
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap305.jpeg)
+
+PHOTO: AP
+Pakistan’s army has long been regarded as wielding more political influence than the country’s hapless politicians. But the appointment of Syed Asim Munir, who takes over from Qamar Javed Bajwa as the chief of the army on Tuesday, looks at least partly driven by party politics. General Munir’s tenure as head of Pakistan’s spy agency was cut short in 2019 after he fell out with Imran Khan, then the prime minister. Mr Khan was himself ousted by Parliament in April and has since set about trying to undermine the government of Shehbaz Sharif, his successor.
+
+Mr Sharif seems to have appointed Mr Munir partly because he sees him as a counterweight to Mr Khan. Yet the army’s reputation among voters has been damaged by Mr Khan’s unproven allegation that military leaders conspired with America to remove him from power. Many soldiers in the army’s lower ranks are quiet supporters of the former prime minister. The new chief will have to work hard to regain the confidence of ordinary soldiers and other Pakistanis.
+
+
+
+#### Emmanuel Macron goes to Washington
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap311.jpeg)
+
+PHOTO: AP
+The French president will arrive in Washington, DC on Tuesday evening for his second state visit to America (he was hosted by Donald Trump in 2018) and the first full state visit that President Joe Biden has hosted. Expect much celebration of America and France’s long friendship—both countries like to say they are each other’s oldest ally. Emmanuel Macron will be treated to the works, including a state banquet at the White House.
+
+The war in Ukraine and geopolitical shifts mean that there will be tensions to manage, too. The French and American positions on Russia have converged: both countries firmly support Ukraine while also seeking to avoid escalation and ultimately favouring a diplomatic solution to the conflict. The thorniest immediate issue will be America’s massive subsidies for clean energy and semiconductors. Europe, France included, considers these a breach of international-trade rules and fears for its own industries, battered by soaring energy prices. New problems will test even the oldest of allies.
+
+
+
+#### Why the world faces more water stress
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap310.jpeg)
+
+PHOTO: AP
+On Tuesday the World Meteorological Organisation publishes, for the first time, an evaluation of global water resources. The findings will be bleak. At COP27, held in Egypt earlier this month, governments noted the “critical” need for “protecting, conserving and restoring water systems”. There is a growing understanding of the relationship between water scarcity and higher global temperatures, and of the need to manage water supplies in order to adapt to climate change.
+
+Global warming worsens natural disasters that affect the availability of water: droughts are longer and more frequent; storms and rising sea levels contaminate water used for drinking and washing. Climate change is also depleting stocks of freshwater held in glaciers, snow and permafrost. According to the UN, by 2050 1.6bn people will be at risk of floods (up from 1.2bn currently), while 3.2bn may live in water-scarce areas (up from 1.9bn in 2010). And water, or its lack, influences economies, too: in Britain and Europe droughts currently cause around $9bn in losses each year.
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_DAC934.jpg)
+
+
+
+#### America’s army recruitment woes
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap308.jpeg)
+
+PHOTO: GETTY IMAGES
+For the fiscal year ending September 2022, America’s army fell 15,000 short of its goal of 60,000 new recruits. On Tuesday grandees—including Major General Johnny Davis, who oversees recruitment—will discuss the problem at the Heritage Foundation, a think-tank in Washington. What explains the shortfall? A red-hot job market has increased competition for workers. And the pandemic saw higher obesity rates and worse academic performance, shrinking the pool of eligible recruits.
+
+Fewer want to sign up, anyway. The army says that just 9% of eligible candidates are actually interested in joining, the lowest level for 15 years. America’s chaotic withdrawal from Afghanistan is partly to blame. So is political polarisation: many on the left see America’s army as stuffy and outdated; those on the right accuse it of being too woke. The army is now stepping up outreach in schools and universities and offering bigger signing bonuses. If that fails to do the trick, some reservists may be put on active duty.
+
+
+
+#### America and Iran meet on the football field
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap306.jpeg)
+
+PHOTO: GETTY IMAGES
+America and Iran have had no diplomatic relations since 1980. Representatives of the two countries almost never come face-to-face, in any arena. But on Tuesday their football teams will face off at the World Cup in Qatar. To stay in the tournament America must win; Iran needs at least a draw. At their previous (and only) World Cup fixture, in 1998, Iran took the honours 2-1.
+
+The match follows months of anti-government demonstrations in Iran, which America has supported. Before their first game in Qatar, the Iranian squad appeared to stage a protest by standing silent during their national anthem. At the second the players did sing, but many Iranians think they were coerced. And last weekend America’s football federation posted a version of Iran’s flag on social media, minus the logo of the Islamic Republic (it was later deleted). Neither side is likely to acknowledge it publicly, but the resonance of Tuesday’s game will extend far beyond the stadium in Doha.
+
+
+
+#### Daily quiz
+
+![img](https://cdn.espresso.economist.com/files/public/images/EspressoQuiz2022_2.jpeg)
+
+Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
+
+**Tuesday:** Which 1948 Hitchcock movie appears to take place in real time?
+
+**Monday:** Which TV streaming service is named after the NBC logo?
+
+
+
+> Love is a great beautifier.
+>
+> Louisa May Alcott
+
+
+
+### November 30, 2022
+
+#### The world in brief November 30, 2022
+
+Catch up quickly on the global stories that matter
+
+Updated 5 hours ago (23:10 GMT / 07:10 Hong Kong)
+
+China began suppressing the widespread protests that erupted over the weekend in frustration at the government’s stringent anti-covid measures. Legions of police were deployed in Beijing and Shanghai, and an unknown number of protesters were arrested. Asian stockmarkets showed signs of rallying after the protests initially caused a slump at the prospect of slower growth in China. Hong Kong’s Hang Seng Index rose by 5.2%, while China’s CSI 300 grew by 3.1%.
+
+Leaders in Congress promised to block a railway strike. On Wednesday America’s House of Representatives will vote to force unions to accept a new contract and end their stand-off with rail carriers, said Nancy Pelosi, the speaker of the House. Four unions had rejected the deal, saying it does not meet their demands for better pay and sick leave, and threatened to strike.
+
+America committed $53m to repair Ukrainian energy infrastructure destroyed by Russian missiles. Antony Blinken, the secretary of state, announced the aid package while foreign ministers from NATO countries gathered in Romania to discuss how to assist Ukraine as winter sets in. The alliance reiterated its support for Ukrainian membership, but with the country’s borders still unclear, NATO has outlined no accession timeline.
+
+Britain agreed to buy out a Chinese state-owned firm of its 20% stake in a nuclear station in England, a day after its prime minister said maintaining close ties with China had been “naive”. Instead Britain will seek other investors in the Sizewell C power station. Separately, Britain summoned the Chinese ambassador to criticise the treatment of a BBC journalist who was arrested while covering Shanghai’s protests.
+
+Singapore’s parliament decriminalised sex between men, though it also moved to block potential future legislation on legalising same-sex marriage. Despite that disappointment, LGBT activists hailed the news that the colonial-era ban was officially repealed. Singaporean attitudes toward LGBT rights have liberalised significantly in recent years, especially among the young.
+
+Maria Kolesnikova, a Belarusian opposition activist serving 11 years in jail, was taken to an intensive care unit, according to the Telegram account of Viktor Babariko, a jailed opposition politician. Ms Kolesnikova had previously been placed in solitary confinement. She was arrested in 2020 as one of the leaders of the unrest that swept Belarus in protest against Alexander Lukashenko’s almost-30-year rule as president.
+
+Football World Cup: America beat Iran 1-0. The goal, by Christian Pulisic, sent him to hospital with an injury. England beat Wales 3-0. The run-up to the former match was dominated by the anti-government protests in Iran, which America has supported. On Monday a protester interrupted a match wearing a T-shirt that said “Respect For Iranian Women”.
+
+
+
+**Fact of the day:** 
+
+**74bn**, the amount in yuan that China’s three biggest airlines lost in the first nine months of 2022.
+
+
+
+#### China’s leaders seek to calm the protesters
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap317.jpeg)
+
+PHOTO: AP
+After years of living under covid lockdowns—or with the threat of them—many people in China have had enough. Over the weekend tens of thousands took to the streets in Beijing, Shanghai and elsewhere, in an unprecedented wave of protests expressing anger with the government. “We don’t want lockdowns, we want freedom”, they chanted.
+
+The government will not grant the freedom of expression that many protesters want. But it hopes to calm some of the anger by loosening restrictions without unleashing a wave of sickness that would cripple the country’s health system. On Tuesday the National Health Commission announced a plan to “accelerate the promotion of covid vaccines for the elderly”. So far only 66% of over-80s have received a booster shot, according to officials, although that is up from 40% earlier this month. That is a practical first step. But for the people who spent the weekend chanting “Down with Xi Jinping”, it may not be enough to mollify their rage.
+
+
+
+#### India’s economy cools but remains an outlier
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap320.jpeg)
+
+PHOTO: AFP
+Few countries have enjoyed as smooth an economic recovery from covid-19 as India. In the quarter ending in June, its annual growth surged to 13.5% (though it came from a low base, given the impact of the pandemic in 2021). This resurgence is, in part, why the IMF predicts that India will ultimately grow 7% in 2022, becoming the fifth largest economy in the world and displacing Britain. Growth rates are now normalising somewhat. Data released on Wednesday are likely to reveal a much smaller year-on-year expansion of 6.2% for the quarter ending in September, according to economists surveyed by Bloomberg.
+
+The global economic slowdown is hitting India’s exports; manufacturing activity remains sluggish. Interest-rate rises are also beginning to bite with tightening expected to continue until next year (albeit less aggressively). The cooling economy, however, may not be a bad thing. In addition to reining in inflation, currently at 6.8%, economists believe weaker domestic demand could reduce worrisome fiscal and trade deficits.
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_DAC023.jpg)
+
+
+
+#### Who will replace Nancy Pelosi?
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap322.jpeg)
+
+PHOTO: GETTY IMAGES
+On Wednesday the Democratic Party in America’s House of Representatives, which lost its majority at the midterms, will choose new leaders. Nancy Pelosi, aged 82, has led the caucus with a steely grip for 19 years. Steny Hoyer and Jim Clyburn, who hold the number two and three posts, are 83 and 82 respectively. This octogenarian monopoly on power has frustrated ambitious younger Democratic congressmen: ascending the ranks can mean waiting decades. In 2018, to placate them, Ms Pelosi agreed to cede the top job in 2022.
+
+Her replacement will almost definitely be Hakeem Jeffries. Aged 52, he is a pragmatic liberal in Ms Pelosi’s mould. Katherine Clark, 59, and Pete Aguilar, 43, will serve as deputies. This outcome—orchestrated by Ms Pelosi, who wanted an orderly transition—underlines the sway the outgoing speaker has over her colleagues. The Republicans, though, have been squabbling. Hardline conservatives are refusing to support Kevin McCarthy, the party’s newly-elected leader in the House—a preview of the fractiousness expected when Republicans control the chamber next year.
+
+
+
+#### New inflation data for the euro zone
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap316.jpeg)
+
+PHOTO: GETTY IMAGES
+Much of Europe is shrouded in fog—and the outlook for inflation is similarly obscure. In America, inflation is slowly on the way down from its peak. But in the euro zone, analysts are still wondering how much higher it might climb. Wednesday’s flash release of the HICP—the bloc’s consumer-price index—will give a hint of whether the worst is behind the European Central Bank. That will help it decide how much to increase interest rates on December 15th.
+
+Early estimates from Germany and Spain for November suggest that headline inflation may be past its peak already. Annual inflation in Spain was recorded at 6.8% (down from 7.3% in October). In Germany, the figure has come down by 0.4 percentage points to 10%. In German states that reported early, the headline figure has come down too. But underlying or “core” inflation, which excludes prices for energy and food and is a better gauge of future inflation pressure, remains stubbornly high in both Germany and Spain. Even when the peak is clear, the way down looks foggy.
+
+
+
+#### Barbados starts work on a project to commemorate slavery
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap323.jpeg)
+
+PHOTO: GETTY IMAGES
+On Wednesday construction will begin on a Barbadian project to commemorate the British transatlantic slave trade. The Barbados Heritage District, designed by David Adjaye, a British-Ghanaian architect, will house a museum and research centre—as well as a memorial to the approximately 400,000 people trafficked to Barbados in the 1600s and 1700s. The complex is next to a site where some of their remains are buried. The first ground will be broken one year after the island ditched the British monarch as its head of state.
+
+Attitudes towards culture, identity and the British monarchy are changing across the Caribbean. King Charles III is still head of state of seven countries in the region, but republican sentiment is growing. Jamaica’s government wants the country to become a parliamentary republic. Smaller islands such as Antigua and Barbuda have said the same. The death of Queen Elizabeth II, who was hugely popular abroad as at home, may only hasten the separation.
+
+
+
+#### Daily quiz
+
+![img](https://cdn.espresso.economist.com/files/public/images/EspressoQuiz2022_4.jpeg)
+
+Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
+
+**Wednesday:** Which condiment comes in honey and whole grain varieties?
+
+**Tuesday:** Which 1948 Hitchcock movie appears to take place in real time?
+
+
+
+> Only dull people are brilliant at breakfast.
+>
+> Oscar Wilde
