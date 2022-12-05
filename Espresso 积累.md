@@ -6462,3 +6462,494 @@ Our baristas will serve you a new question each day this week. On Friday your ch
 > Only dull people are brilliant at breakfast.
 >
 > Oscar Wilde
+
+
+
+
+
+## December 2022
+
+### December 1, 2022
+
+#### The world in brief December 1, 2022
+
+Catch up quickly on the global stories that matter
+
+Updated 6 hours ago (22:00 GMT / 06:00 Hong Kong)
+
+Two cities in China—Chongqing and Guangzhou—said that they would ease covid-19 restrictions amid the continuing protests against the country’s stringent measures. Separately, Jiang Zemin, China’s former president, died at the age of 96. Mr Jiang became leader of the Chinese Communist Party in 1989, after the Tiananmen Square massacre, and presided over a wave of economic change.
+
+American stockmarkets jumped after Jerome Powell, the chairman of the Federal Reserve, said that “the time for moderating the pace of rate increases” could come in December. The S&P 500 leapt by 3% at his suggestion that interest rates would rise by a half-percentage point, following four straight increases of three-quarters of a percentage point.
+
+An independent panel appointed by the speaker of South Africa’s parliament determined that the president, Cyril Ramaphosa, probably violated anti-corruption laws, raising the likelihood that he will be impeached. Mr Ramaphosa stands accused of covering up the theft of at least $4m from his cattle farm in 2020. He denies the accusations.
+
+America’s House of Representatives passed legislation forcing railway workers to accept a new contract over objections from some of their unions, averting the risk of a strike. The Senate is expected to follow suit. Separately, Democrats in the lower chamber elected Hakeem Jeffries as their leader to replace Nancy Pelosi, who has held the post for 19 years. He will captain a Democratic minority starting next year.
+
+The European Commission recommended freezing some €7.5bn ($7.8bn) of EU funds to Hungary because of concerns about the rule of law. It said that Hungary had failed to address 17 reforms negotiated over the summer before a deadline earlier this month. The move is a blow to Hungary’s prime minister, Viktor Orban, amid the country’s precarious economic situation.
+
+Russia and China carried out joint air patrols over the Sea of Japan and East China Sea, causing South Korea to launch jets to accompany eight warplanes that entered its air defence area. The patrols consisted of strategic warplanes, including the Tupolev TU-95 bombers known as the “Bear”, and marked the first time the countries had landed military aicraft in each other’s airfields, according to Russia’s defence ministry.
+
+Football World Cup: Argentina advanced to the knockout stage after beating Poland 2-0. But so did Poland, after Mexico’s 2-1 victory over Saudi Arabia failed to give it the requisite number of goals to advance. England, the Netherlands and Senegal also booked their spots in the next stage.
+
+#### Fact of the day: 
+
+**$170bn**, the worldwide revenues of the games industry this year, five times the global box office. 
+
+
+
+#### A tense trip to China for a top Eurocrat
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap335.jpeg)
+
+PHOTO: AP/GETTY IMAGES
+Charles Michel, the president of the European Council, will meet Xi Jinping, China’s president, in Beijing on Thursday. After years of pandemic-imposed isolation, China is keen to reset its chilly relationship with Europe. Germany’s chancellor, Olaf Scholz, was invited to visit in November, and France’s president, Emmanuel Macron, is expected early next year.
+
+But the timing for Mr Michel, who chairs summits of EU leaders, is especially tricky. In the past week demonstrations against draconian covid restrictions have gripped China. Police are intimidating and detaining protesters. Mr Michel is under pressure to comment, but must choose his words carefully—China needs little excuse to blame “foreign forces” for inciting domestic unrest.
+
+Ukraine will also be on the agenda. Mr Michel and other European leaders want Mr Xi to put pressure on Russia to end its invasion. The chances of success seem slim, though: Chinese officials recently cancelled a video address by Mr Michel to a trade expo in Shanghai when they learned he would be criticising the war.
+
+
+
+#### Spain sets its sights on startups
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap336.jpeg)
+
+PHOTO: DAVE SIMONDS
+Spain is not the easiest place to do business. It has good infrastructure and little petty corruption. But its legal traditions—in which it can seem as if everything not expressly permitted is forbidden—and unwieldy bureaucracy can make starting and growing a company harder than it should be.
+
+The government hopes that a new law will change that, at least for startups. The bill, which should pass through the lower house of parliament on Thursday, aims to lighten the load for founders by offering lower taxes, more favourable tax treatment for stock options and other benefits for companies that are less than five years old and that generate less than €10m ($10m) in annual revenue.
+
+The law should make life easier for “digital nomads” who fancy a move to Spain, too. Non-EU nationals will be able to apply for a simplified visa and pay a lower rate of tax while working remotely from the country, provided that their paying clients are mainly based abroad.
+
+
+
+#### A challenge to India’s opposition in Gujarat
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap332.jpeg)
+
+PHOTO: AFP
+On Thursday voters head to the polls to elect a local government in Gujarat, a state of 70m people in western India. The result is practically guaranteed. The Bharatiya Janata Party—which also rules the country—has won the last six elections in Gujarat. Still, the party is not taking any chances. Narendra Modi, the BJP prime minister who rose to national prominence as Gujarat’s leader, has attended dozens of rallies in the run-up to the election.
+
+But watch the battle for second place. That spot has usually gone to Congress, India’s hapless national opposition party. But this time it faces competition from Aam Aadmi Party, a newish populist group. The AAP recently beat the BJP and Congress in elections in Punjab, a northern state. In Gujarat it is running on a similar campaign, promising free education and electricity. Another strong showing would establish the AAP as a national force, and perhaps the strongest challenger to the BJP ahead of India’s next general election in 2024.
+
+
+
+#### The soaring global cost of living
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap333.jpeg)
+
+PHOTO: GETTY IMAGES
+New York and Singapore are the world’s most expensive cities, according to the latest Worldwide Cost of Living Survey from EIU, The Economist’s sister company. The survey, which compares the prices of more than 200 products and services in 173 cities, finds that living costs are rising at their fastest clip for at least 20 years. Prices in major cities are up by an average of 8.1%, in local-currency terms, over the past year.
+
+Russia’s war in Ukraine is one cause, leading to higher food and energy prices. Supply-chain problems caused by covid-19 restrictions in China are another. Though six of the top ten cities that have moved the most up the rankings are in America, the two biggest climbers are Russian. Western sanctions have driven up prices such that St Petersburg has risen 70 places since 2021, while Moscow has shot up 88 slots, to 37th place.
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_WOM937.jpg)
+
+
+
+#### A Beckmann self-portrait goes under the hammer
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap329.jpeg)
+
+PHOTO: GETTY IMAGES
+Last year 80% of international art sales took place in America, Britain, China, Hong Kong or Taiwan. Germany, by contrast, does not have a reputation as an art-sales hotspot. But one lot on Thursday at Grisebach, one of the leading auction houses in Berlin, will command attention around the world.
+
+Among the pieces going under the hammer is “Selbstbildnis gelb-rosa”—“Self-Portrait Yellow-Pink”—by Max Beckmann, a German Expressionist. The painting is expected to go for between €20m-€30m ($21m-$31m), which would make it the priciest piece ever sold at auction in Germany.
+
+Beckmann painted the self-portrait as a gift for his wife, Mathilde, in 1943, after the pair fled Nazi Germany (Beckmann had been declared a “cultural Bolshevik” by the regime). It has been privately owned until now. Painted in unusually bright colours, it offers a glimpse of the artist’s strong spirit in the face of war and exile.
+
+
+
+#### Daily quiz
+
+![img](https://cdn.espresso.economist.com/files/public/images/EspressoQuiz2022_5.jpeg)
+
+Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
+
+**Thursday:** Which San Francisco park hosted a Beatles concert in 1966 as well as a Paul McCartney gig (the last event at the site) in 2014?
+
+**Wednesday:** Which condiment comes in honey and whole-grain varieties?
+
+> Freedom is not for the timid.
+>
+> Vijaya Lakshmi Pandit
+
+
+
+### December 2, 2022
+
+#### The world in brief December 2, 2022
+
+The world in brief
+Catch up quickly on the global stories that matter
+
+Updated 5 hours ago (23:53 GMT / 07:53 Hong Kong)
+
+During Emmanuel Macron’s state visit to America, Joe Biden said he was “prepared to speak with” Vladmir Putin, as Mr Macron has, if the Russian president signalled an interest in ending the war in Ukraine. Mr Biden also said he would address “glitches” in the Inflation Reduction Act, a packet of subsidies for clean energy that the French president fears will disadvantage European manufacturers.
+
+Inflation in America rose less than expected in October, according to the metric favoured by the Federal Reserve. The “core” personal-consumption expenditures price index, which excludes food and energy, increased by 0.2% from the previous month, after having risen by 0.5% in September. Personal spending jumped by 0.8% in October, a sign that consumers appear undaunted by rising interest rates.
+
+The EU council’s president, Charles Michel, raised “the response of societies” to covid-19 measures during a meeting with the Chinese president, Xi Jinping, in Beijing, an apparent reference to the widespread protests in China. Mr Michel also brought up Ukraine and Taiwan, according to his spokesperson. On Wednesday Chongqing and Guangzhou, two of China’s biggest cities, said that they would ease some covid restrictions.
+
+Russia continued its attacks on the eastern Donbas region, the area of most intense fighting, while also bombing Kherson in the south, the Ukrainian army said. Meanwhile, NATO foreign ministers agreed to bolster support for Bosnia, Georgia and Moldova. And America signed a $1.2bn contract to purchase six NASAMS air-defence systems for Ukraine; it will send eight in total.
+
+A federal appeals-court panel ruled that documents seized from Donald Trump’s Florida estate need not be reviewed by an independent arbiter. The decision removes an obstacle in the justice department’s investigation into whether America’s former president mishandled state secrets. The arbiter, known as a “special master”, had been empowered by a district-court judge to keep from investigators any material covered by executive privilege or attorney-client privilege.
+
+Spain said that six letter-bombs were sent to addresses across the country in recent days: Pedro Sánchez, the prime minister, and Margarita Robles, the defence minister, were among the intended targets. One device sent to the Ukrainian embassy in Madrid injured a security officer on Wednesday. Spanish officials said the bombs were homemade and had been sent from inside the country.
+
+Football World Cup: Japan stunned Spain with a 2-1 win. Both countries advanced to the knockout stage. The surprise outcome means that Germany, though it triumphed over Costa Rica 4-2, failed to make the requisite number of goals to advance. Earlier Australia shocked Denmark to secure a place in the knockout round for only the second time in the team’s history.
+
+#### Fact of the day: 
+
+**5%**, the proportion of Britons that now regularly go to church.
+
+ 
+
+#### The Trump Organisation on trial
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap342.jpg)
+
+PHOTO: AP
+On Friday the closing arguments in a criminal trial of two units of the Trump Organisation are expected to conclude. The real-estate company owned by Donald Trump, a former president, is charged with crimes including conspiracy, tax fraud and falsifying business records. Jurors heard Allen Weisselberg, the company’s chief financial officer, admit to concealing $1.76m of “bonus” income, including payment of rent for an apartment and private-school tuition. Donald Bender, who managed the organisation’s taxes for 35 years, said that he “probably would have had a heart attack” had he known about the payments.
+
+Prosecutors allege that the company engaged in a long-running tax-avoidance scheme. The defence maintains that neither Mr Trump (who is not charged with wrongdoing) or his family knew, and that the company did not benefit from it. But, if convicted on all counts, the Trump Organisation could face $1.6m in fines. Separately, New York State’s attorney-general has filed a lawsuit against Mr Trump and his family, which accuses them of “staggering fraud” and seeks damages of at least $250m. They deny the charges. That case is expected to go to trial next year, as Mr Trump’s presidential campaign gets going.
+
+
+
+#### British politicians visit Taiwan
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap338.jpg)
+
+PHOTO: AP
+On Friday a group of British lawmakers will conclude a visit to Taiwan designed in part to assess the effectiveness (or not) of Britain’s foreign policy in the region. They met Tsai Ing-wen, the president, to affirm Britain’s “strong cultural and trading ties” with the self-governing island that China regards as part of its territory.
+
+The British delegation is the latest in a string of international guests that Ms Tsai has welcomed since a visit by Nancy Pelosi, the speaker of America’s House of Representatives, enraged China in August. Ms Tsai has been keen to demonstrate her strength as a leader who can garner the global support necessary to fend off an increasingly bellicose China. But after her party’s drubbing in local elections last week she resigned as party leader and will cede some of her platform to her successor. British politicians are increasingly hawkish on China. But they may find a Taiwanese leader who is, at least for now, deflated rather than defiant.
+
+
+
+#### Pakistan’s $1bn repayment deadline
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap339.jpg)
+
+PHOTO: ALAMY
+Jameel Ahmad, the governor of Pakistan’s central bank, sounded confident last week when he promised that Pakistan would repay a $1bn international bond by Friday—three days before it matures on December 5th. If that deadline is met, it will send a signal to international lenders that the country retains some degree of fiscal stability.
+
+It needs to: Pakistan’s economy is in tatters. The lingering effects of the covid pandemic, rocketing energy prices and the previous government’s economic mismanagement were compounded over the summer when an unusually strong monsoon deluged the country, causing more than $30bn of damage and financial losses. Annual inflation was at 23.8% in November. The government is trying to persuade the IMF to release more bail-out funds. But the IMF wants proof that officials are making progress on a plan to rebuild after the floods. Pakistan will need an awful lot more than confidence to get out of its current predicament.
+
+
+
+#### A famous Christmas painting returns in London
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap340_0.jpg)
+
+PHOTO: GETTY IMAGES
+This week “The Nativity” by Piero della Francesca, one of the most popular paintings in London’s National Gallery, returns to public view after three years’ absence. Painted around 1480, this Christmas-card favourite shows an angelic boy-band serenading the infant Jesus and his blue-robed mother against a luminous Tuscan landscape. Rugged shepherds and farmyard beasts complete the familiar, charming scene. Yet scholars have long lamented the sorry state of the oil-painted panel, which was purchased by the gallery in 1874. Much of the paint had faded and the figures lacked shadows. Plus the bald, sandy foreground led some experts to declare the painting unfinished.
+
+The three-year restoration project, led by Jill Dunkerton, the gallery’s senior restorer, has healed the wounds inflicted by clumsy 19th-century cleaners. It has also confirmed that the painting is complete. Piero envisaged that earthy Tuscan hilltop as bare and shadowless: an uncluttered stage to better show the brilliant mystic light of Jesus’s birth. Art-lovers can now get even more enjoyment from Piero’s blend of the miraculous and the mundane.
+
+
+
+#### The rubbish problem of plastic pollution
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap343.jpg)
+
+PHOTO: AP
+The first round of negotiations over a global plastic-pollution treaty will conclude in Uruguay on Friday. In March 175 countries endorsed the idea of a UN accord governing plastic waste, which has been found everywhere from the deepest part of the ocean to the tip of Mount Everest. Delegates gathered this week in Punta del Este, a beach town, to decide what the accord should say.
+
+Some parties—including Britain, Canada, the EU and Switzerland—want the final treaty to be binding, and to set a goal of stopping plastic pollution by 2040. America agrees with the aim but favours voluntary action and doesn’t want new curbs on production. Some 19% of the world’s plastic is made in North America, 31% in China.
+
+Plastic pollution causes about $100bn-worth of damages and clean-up costs each year, according to one estimate. Just 9% of the stuff is recycled. But countries have until the end of 2024 to finalise an accord. An effective one is far from being in the bag.
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_DAC043.jpg)
+
+
+
+#### Daily quiz
+
+![img](https://cdn.espresso.economist.com/files/public/images/20220218_OPD004_hq_57.jpg)
+
+Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
+
+**Friday:** Which Nathaniel Hawthorne novel tells the story of Hester Prynne?
+
+**Thursday:** Which San Francisco park hosted a Beatles concert in 1966 as well as a Paul McCartney gig (the last event at the site) in 2014?
+
+
+
+#### Crossword winners
+
+![img](https://cdn.espresso.economist.com/files/public/images/Espresso_0.jpg)
+
+The winners of last week’s crossword
+
+Thank you to everyone who took part in our weekly crossword, published in the weekend edition of Espresso. The three winners, chosen at random, were:
+
+Ravikiran Kota, Houston, United States
+
+Alessandro Cologni, Bergamo, Italy
+
+Nikharika Mittra, Dubai, United Arab Emirates
+
+They all gave the correct answers of Anwar Ibrahim, Arabic, Intel and Madrid. Check back tomorrow for this week’s crossword.
+
+
+
+> Life has a practice of living you, if you don't live it.
+>
+> Philip Larkin
+
+
+
+### December 3, 2022
+
+#### The world in brief December 3, 2022
+
+Catch up quickly on the global stories that matter
+
+Updated 3 hours ago (01:08 GMT / 09:08 Hong Kong)
+
+Diplomats from the EU agreed on a price cap for Russian oil of $60 per barrel, according to Poland’s ambassador. The policy aims to squeeze Russia’s revenue by prohibiting Western firms from insuring, shipping or trading Russian crude anywhere in the world unless it is sold below the cap. The G7 is expected to endorse the plan soon. Separately, an EU embargo on Russian crude takes effect on Monday.
+
+Employers in America added more jobs than expected—263,000—to non-farm payrolls in November. A separate household survey showed that 186,000 people left the labour force, putting pressure on wages, which rose by 0.6% in November from the previous month. Strong hiring and pay growth are unlikely to deter the Federal Reserve from its highly telegraphed plan to ease interest-rate increases in December.
+
+China began adjusting to what the country’s covid tsar, Sun Chunlan, called a “new stage” in the fight against the virus, after a wave of protests. Authorities in two major cities, Chengdu and Tianjin, announced a further easing of covid curbs. Meanwhile Kristalina Georgieva, head of the IMF, said China’s covid strategy would be “critical” in determining Asia’s economic future amid an “exceptionally uncertain” outlook.
+
+Florida lawmakers may keep Disney’s “special-district” status, according to the Financial Times. The designation, which lets Disney operate like a county government at its Orlando-area parks, was set to be revoked after the firm’s former boss criticised a state ban on discussion of sexuality and gender identity among young pupils. But Bob Iger’s return has reportedly helped change lawmakers’ minds. Florida’s governor denied the report.
+
+Germany’s exports dropped more than anticipated in October, official data showed, as high inflation and supply-chain issues continued to bite. Exports fell by 0.6%, the second consecutive monthly decline after a drop of 0.7% in September. The news tempers optimism that the country faces a milder recession than expected after growth figures for the third quarter, announced last week, beat forecasts.
+
+Ukraine has lost between 10,000 and 13,000 soldiers since the war began, according to a senior official. Mykhailo Podolyak, an adviser to Volodymyr Zelensky, Ukraine’s president, also suggested that around 100,000 Russian soldiers have been killed. Meanwhile Ukraine’s army said Russia is using nuclear-capable missiles armed with non-explosive warheads to “exhaust” the country’s air-defence systems.
+
+Football World Cup: South Korea upset Portugal; both advanced past the group stage. Cameroon ended Brazil’s 17-game World Cup winning streak but that was not enough to progress. Giant-killers Japan and Morocco both moved on, sending Germany and Belgium packing their bags. On Saturday the knockout stage starts.
+
+#### **Word of the Week:** 
+
+fumuguan, a Chinese word meaning “father-mother official” and often used to describe local magistrates in imperial times.
+
+
+
+#### Migration in the Med
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap357.jpg)
+
+PHOTO: AFP
+On Saturday Italy’s prime minister, Giorgia Meloni, is due to address an annual conference about security and co-operation in the Mediterranean region—a touchy subject for her government. In October Italy refused to accept a ship carrying 234 migrants who had been rescued off the coast of Libya. France ultimately allowed it to dock after a bitter tussle with Ms Meloni. Calling her government’s stance “incomprehensible and unacceptable”, the French suspended an agreement to settle 3,500 asylum-seekers currently in Italy.
+
+That deal, struck in June by 18 EU members, was already falling short. Under the pact northern European countries agreed to accept 8,000 asylum-seekers from their southern neighbours within a year. But by mid-November only 117 had been relocated. Expect Ms Meloni to voice the complaint of many Italians—that Italy is being left to deal with Mediterranean migration by itself.
+
+
+
+#### Next up at the World Cup
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap349.jpg)
+
+PHOTO: GETTY IMAGES
+It has taken 48 matches to trim the 32 teams at the football World Cup to 16. Now as the tournament enters the knockout stages on Saturday, it will take just 15 games to reveal a champion. Several fancied teams have made strong starts and look like contenders. The holders, France, should ease past Poland. Likewise, Lionel Messi’s Argentina against Australia. England, too, should have enough attacking prowess to beat Senegal. And Brazil remain favourites to end their 20-year trophy drought.
+
+But there is also plenty of scope for upsets. America will be energetic opponents for the Netherlands, who were not properly tested in a weak group. Morocco, playing in their first knockout match since 1986 and unbeaten so far, will relish the chance to take on Spain. And Japan, fresh from shocking Germany and Spain, will be looking for another European scalp in Croatia, the beaten finalists in 2018.
+
+
+
+#### Native Americans fight for sacred land
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap358.jpg)
+
+PHOTO: AP
+Saturday is America’s first Tribal Museums Day. But the celebration takes place amid tension over sacred land in Arizona. Chi’chil Bildagoteel, which measures 6.7 square miles (17.4 sq km), is owned by the federal government. It is also an important religious site for members of the Apache tribe. The Trump administration arranged to transfer it to Rio Tinto and BHP, two multinational mining firms, in a land swap; the copper mine planned for the site could become America’s largest.
+
+Tribal leaders, who gathered this week in Arizona for the Sacred Sites Summit, say that protecting particular sites is a “holy war”. Last year Apache representatives sued the federal government, claiming that losing Chi’chil Bildagoteel would curtail their religious freedom. An appeals court upheld a district-court ruling against them, but in November it agreed to rehear the case. A win for the Apache could help protect other sacred lands—and ensure that they remain part of a living culture, not one relegated to museums alone.
+
+
+
+#### The Sydney Modern opens
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap350.jpg)
+
+PHOTO: GETTY IMAGES
+Its opening is being called Sydney’s biggest cultural development since the Opera House was completed nearly 50 years ago. But unlike that landmark, the Sydney Modern, a gallery which opens on Saturday, does not disrupt the skyline: it hunkers into the harbourside, all glass walls and grass-covered roof. The project, costing A$344m ($234m), aims instead to make a mark with its exhibitions. It nearly doubles the floor space of the adjacent Art Gallery of New South Wales and features work by more than 900 artists, including indigenous Australians.
+
+Sydneysiders blush at how their city gets outshone culturally by Melbourne, known for its thriving arts scene. The new gallery aspires to compete with London’s Tate Modern or New York’s Guggenheim, said Ben Franklin, a minister for arts and tourism. Thousands of Sydneysiders have registered to visit. The gallery’s creators will hope for global attention too.
+
+
+
+#### Weekend profile: Alexie, a protester in Shanghai
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap346.jpg)
+
+PHOTO: GETTY IMAGES
+Alexie has joined two protests in her life. Both times, the Shanghai coffee-shop owner (whose name we have changed) chanted slogans against China’s government—a good way to risk a jail sentence.
+
+In 2019, to express her own discontent with China’s growing authoritarianism, she travelled to Hong Kong, where she marched with millions of others calling for democratic rule in the territory. She was unable to tell anyone who she was and what she was doing there. “I felt alone, but paradoxically, I had never felt so close to the people around me,” she says.
+
+In the three years since, Chinese officials have only tightened their grip on Hong Kong. Many there have lost hope. Alexie has, too. She considered leaving China on several occasions but ultimately decided against it: not because she didn’t have the means, but because of her “unspeakably deep connections” with her homeland. Alexie is a globetrotter—having lived in Argentina and travelled to nearly all continents, she came back to China four years ago, hoping to establish a stable life, even though it soon started to become “unbearable”, not least because of the prolonged covid-19 lockdowns.
+
+Last Saturday night, she found some solace. She learned from friends that protesters were gathering on Wulumuqi Road, just three kilometres from her apartment. Taking a bouquet of flowers and sheets of white paper, the symbolic weapons of these protests, she joined them. She laid flowers in tribute to the families who had died two days before in a fire in an apartment building in Xinjiang, in far-west China. The building’s exits had reportedly been sealed, to comply with China’s zero-covid policy. The blank paper is more explicitly political, a challenge to China’s strict controls on free expression.
+
+She could hear the chanting from a few blocks away. “No to PCR testing, yes to freedom.” When one person shouted, “Communist Party!”, a handful of people responded tentatively, “Step down!”. Again, the man shouted “Communist Party!”. This time the response was stronger and more joined in, including Alexie: “Step down!”
+
+The next day, clips of the protest she attended flooded Twitter, which is blocked in China but accessed by people with virtual private networks. With dread she stopped the videos on each frame to check if her face was visible (it wasn’t). “I was afraid, and still am, but I just had to go,” she says.
+
+
+
+#### Weekly crossword
+
+![img](https://cdn.espresso.economist.com/files/public/images/EspressoCrossword_11.jpg)
+
+Our crossword is designed for experienced cruciverbalists and newcomers alike. Both sets of clues give the same answers, all of which feature in articles in this week’s edition of The Economist:
+
+Email all four answers by 9am BST on Monday to crossword@economist.com, along with your home city and country. We will pick randomly from those with the right answers and crown three winners in next week’s edition.
+
+**Cryptic clues**
+
+1 down Former president dancing jig in middle of dense maze (5, 5)
+
+1 across German agreement to criticise another country (6)
+
+2 across Perhaps football is courageous? (5)
+
+3 across Not at all part of career: even in retrospect! (5)
+
+**Factual clues**
+
+1 down An engineer-turned-economic-reformer (5, 5)
+
+1 across One of America’s Asian friends (6)
+
+2 across This type of subscription is increasingly big business (5)
+
+3 across “The King ___ dies”, according to a legal maxim (5)
+
+![img](https://cdn.espresso.economist.com/files/public/images/XwordGrid_10_545_0.jpg)
+
+
+
+
+
+#### The winners of this week’s quiz
+
+![img](https://cdn.espresso.economist.com/files/public/images/20220221_OPD004_44.jpg)
+
+Thank you to everyone who took part in this week’s quiz. The winners, chosen at random from each continent, were:
+
+Asia: Jin-Hong Park, Suwon, South Korea
+
+North America: Mary Lou Finlay, Toronto, Canada
+
+Central and South America: Federico Tarling, La Plata, Argentina
+
+Europe: Katarzyna Piontas, Sopot, Poland
+
+Africa: Neries Moodley, Durban, South Africa
+
+Oceania: Ewen Mackenzie-Bowie, Auckland, New Zealand
+
+They all gave the correct answers of Peacock, Rope, Mustard, Candlestick Park and The Scarlet Letter. The theme is Clue (or Cluedo); Mrs Peacock, Colonel Mustard and Miss Scarlet are characters and the rope and candlestick are weapons.
+
+
+
+> Our business in this world is not to succeed, but to continue to fail, in good spirits.
+>
+> Robert Louis Stevenson
+
+
+
+### December 5, 2022
+
+#### The world in brief December 5, 2022
+
+Catch up quickly on the global stories that matter
+
+Updated 4 hours ago (23:38 GMT / 07:38 Hong Kong)
+
+OPEC and its allies decided not to change their production targets as the cartel of oil-producing states waits to ascertain the impact of a new Western price cap on Russian crude. On Friday diplomats from the EU, the G7 and Australia agreed to cap Russian oil at $60 per barrel in an attempt to squeeze Russia’s revenues. Russia said it “will not accept” the cap, though admitted it had prepared for it. Volodymyr Zelensky, Ukraine’s president, called the policy “weak”, saying it would not cause “serious” damage to Russia.
+
+There were reports that Iran was considering abolishing its morality police. Many observers were sceptical, but if true it would be a sign that the government may be bowing to ongoing protests. The unrest started in September after Mahsa Amini, a 22-year-old woman, died in custody having been arrested for violating the country’s dress code. On Saturday Iran’s attorney-general, Mohammad Jafar Montazeri, said parliament was reviewing a law requiring women to wear a hijab.
+
+Ursula von der Leyen, president of the European Commission, said that the EU must “adapt” its state-aid rules in the face of American climate legislation. European leaders fear that America’s Inflation Reduction Act, which offers subsidies worth nearly $400bn for green industries, will draw investment away from the EU. During Emmanuel Macron’s visit to America last week, Joe Biden said that “tweaks” could be made to the legislation to allay European concerns.
+
+Demonstrators in Syria attacked and set on fire the governor’s office in the southern city of Sweida. Heavy gunfire was reported during the incident. Earlier, hundreds of people had gathered outside the office protesting against spiralling prices, hunger and economic hardship, demanding the resignation of the president, Bashar al-Assad. The civil war, in particular, resulted in a severe contraction of the economy.
+
+Urumqi, the capital of the Xinjiang region in north-west China, announced a lifting of covid restrictions after unprecedented protests against the government’s zero-covid policies. The city, where the wave of protests initially began, will reopen malls, restaurants, markets and some other venues from Monday. Other Chinese cities have recently eased restrictions as well in response to the popular unrest.
+
+A volcano has erupted on Indonesia’s main island, Java, prompting the evacuation of almost 2,000 people as authorities issued a highest-level alert. Injuries have not immediately been reported, but residents were warned to keep 8km from Mount Semeru as it blasted clouds of ash and poured streams of lava. Indonesia experiences frequent volcanic activity; Semeru last erupted one year ago, killing 51 people.
+
+Football World Cup: After a group stage punctuated by a series of extraordinary upsets, the first matches of the knockout round did not provide any shocks. England beat Senegal, whose star Sadio Mané is out of the tournament, and France, inspired by Kylian Mbappé, cruised past Poland.
+
+
+
+#### Fact of the day: 
+
+**670**, the amount of gold in tonnes that central banks bought from January to September. 
+
+
+
+#### Squeezing Russian oil flows
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap364.jpg)
+
+PHOTO: AP
+On Monday, the EU ban on seaborne crude oil from Russia comes into effect. At the same time, another complicated scheme to manipulate the energy markets has been agreed, designed to slash the flow of petrodollars fuelling Russia’s war in Ukraine while avoiding a global oil-supply shock.
+
+European (including British) suppliers of tankers and insurance will be banned from providing services to vessels ferrying crude oil from Russia to non-EU countries. To ensure the ban does not decimate Russian exports and spark an oil-price shock, America proposed that such services could be made available to non-EU countries so long as they purchased seaborne Russian oil below an agreed price cap. After months of wrangling, on Friday the G7 club of rich countries, Australia and the EU agreed to a cap of $60 a barrel. But with Russia refusing to abide by any cap, it is too soon for the West to declare victory.
+
+
+
+#### Transatlantic trade troubles
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap365.jpg)
+
+PHOTO: GETTY IMAGES
+Europe has long urged America to do more in the fight against climate change. Now that it has, the EU is not happy. The bloc fears that President Joe Biden is following an “America First”, rather than a climate-first, approach. The Inflation Reduction Act, Mr Biden’s flagship policy, offers green incentives worth $400bn, but includes protectionist subsidies on key products like electric cars. On Monday a meeting in Washington between the EU and the Biden administration could offer hints on how the pair hope to resolve the dispute.
+
+The text of the law says that exceptions can be applied only to countries with which the United States has a free-trade agreement; America has no such deal with the EU. On Sunday the European Commission’s president, Ursula von der Leyen, warned that the bloc must “adapt” its own state-aid rules in the face of America’s green subsidies. Not a good sign for the meeting.
+
+
+
+#### Free speech v gay rights at SCOTUS
+
+
+
+PHOTO: ![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap361.jpg)REUTERS
+Four years after sidestepping the crux of a dispute between a gay couple and a Christian baker who refused to make them a wedding cake, America’s Supreme Court is taking another crack at the subject. On Monday the justices will examine the case of 303 Creative v Elenis. The question is: does the First Amendment protect a web designer who says her beliefs about marriage preclude her from creating websites for gay weddings?
+
+Lorie Smith, the designer, says “sacred freedoms of thought and mind” bar the state of Colorado from forcing her to create messages that clash with her beliefs. The state counters that the law only requires Ms Smith to supply gay customers with the same services she offers straight ones. She could insist on selling only websites containing “biblical passages stating that marriage is a union of one man and one woman” as long as she sells them “to everyone”. Tricky questions at the heart of America’s culture wars await: if a business can refuse to carry out work involving same-sex weddings, why not interracial ones, too?
+
+
+
+#### China’s faltering economy
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap360.jpg)
+
+PHOTO: GETTY IMAGES
+On Monday China’s central bank will free up 500bn yuan ($72bn) for lending within the banking system, after announcing a 25-basis-point cut to the required reserve ratio, the amount of money banks are required to hold as reserves. In recent years the People’s Bank of China has routinely cut RRR to encourage banks to lend more. The hope is that there will be takers for the extra credit, but demand has been lacklustre in China’s decelerating economy. Covid restrictions have caused companies great uncertainty. Many planned investments in factories or new shops have been axed. In October new loans declined to 615bn yuan, 211bn yuan less than a year ago.
+
+That is worrying for the government, which in its quest for growth wants companies to expand operations and build factories. Until China fixes its covid problem, RRR cuts might amount to little more than pushing on a string.
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221210_DAC070.jpg)
+
+
+
+#### Picking the word of the year
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap363.jpg)
+
+PHOTO: ALAMY
+At this time of year, as others are trimming Christmas trees, a clutch of dictionary publishers ponder their choice for word of the year. Oxford Dictionaries will publish their choice on Monday, having chosen three finalists which, for the first time, were put to a public vote.
+
+One is “goblin mode”, a state in which someone indulges their laziest or most self-indulgent habits—perhaps suitable as a symbol for the first proper post-lockdown year. Another is “#IStandWith”, a hashtag used frequently in solidarity on Twitter but whose status as a word seems questionable. The third is the “metaverse”, which Meta (owner of Facebook) and other companies have poured fortunes into developing—but which few people seem to be actually spending time in. It has been a strange year: war, economic upheaval and a pandemic hangover are hard to sum up in a single dictionary entry. Perhaps 2023 will bring better news, and more inspiring words.
+
+
+
+#### Daily quiz
+
+![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_78.jpeg)
+
+Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
+
+**Monday:** Which fighter jet is manufactured by the French group, Dassault?
+
+
+
+> It is in the character of growth that we should learn from both pleasant and unpleasant experiences.
+>
+> Nelson Mandela
