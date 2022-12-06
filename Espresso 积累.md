@@ -1025,6 +1025,7 @@ Porsche overtook its former parent company, Volkswagen, to become Europe’s mos
 ![img](https://espresso-prod.s3.amazonaws.com/files/public/styles/adaptive_mid/public/images/20221008_dap338.jpg)
 
 PHOTO: GETTY IMAGES
+
 House prices across Britain and the EU have spiralled since the start of the pandemic. But not for much longer, according to two separate indices to be published on Friday by Halifax, a British lender, and Eurostat, the EU’s statistics agency. Higher mortgage rates and a cost-of-living squeeze are dampening buyer enthusiasm. From July to August, according to Halifax, the price of an average British house rose by 0.4%, to a record £294,260 ($342,000). But that increase was slower than the monthly average of 0.9% over the past year.
 
 A meltdown akin to America’s subprime crisis when prices fell by a third looks unlikely: a chronic shortage of homes has seen prices across the EU soar by 45% since 2010. Tight labour markets, which improve household finances, mean that homes are still being snapped up. But as the market cools, a reversal could be around the corner.
@@ -1038,6 +1039,7 @@ A meltdown akin to America’s subprime crisis when prices fell by a third looks
 ![img](https://espresso-prod.s3.amazonaws.com/files/public/styles/adaptive_mid/public/images/20221008_dap340.jpg)
 
 PHOTO: REUTERS
+
 The overturning of Roe v Wade in June has opened up a battleground in the Buckeye state. The removal of federal protections opened the way for Ohio’s “trigger ban”, introduced in 2019, to come into force. It prohibited almost all abortions after six weeks. But in mid-September a judge in Hamilton County temporarily suspended the law, on the grounds that Ohio’s constitution guarantees a “fundamental right to privacy, procreation, bodily integrity and freedom of choice”. His ruling, which lasts until October 12th, was a victory for pro-choice campaigners.
 
 On Friday the court will hold another hearing on the injunction. And specific abortion cases are percolating through the courts. In June a ten-year-old was forced to travel to Indiana from Ohio for an abortion after being raped. Indiana’s Republican attorney-general threatened to prosecute the doctor who performed the abortion, claiming, incorrectly, that she had not filed the correct paperwork; she is now suing him for defamation. The battles over abortion show no sign of losing steam.
@@ -1049,6 +1051,7 @@ On Friday the court will hold another hearing on the injunction. And specific ab
 ![img](https://espresso-prod.s3.amazonaws.com/files/public/styles/adaptive_mid/public/images/20221008_dap336.jpg?itok=UGIlk-wK)
 
 PHOTO: EPA
+
 On Friday one of Catalonia’s two governing parties, Junts per Catalunya, will announce the result of an internal vote on whether to leave the government. Both Junts and its coalition partner, Esquerra Republicana (ERC), support Catalonian independence. Both backed the illegal independence referendum of October 2017, which prompted the national government in Madrid to suspend the region’s self-rule. After a bare majority of voters chose pro-independence parties in last year’s regional elections, many separatist politicians took the result as a mandate to press on.
 
 But the partners are divided on speed. The smaller, more conservative Junts are impatient, while the larger ERC has banked on winning concessions from Madrid through a formal dialogue that began last year. A crackup of the coalition risks putting the independence question on ice. ERC will need votes from more mainstream parties to govern; those groups will want to prioritise the economy. Despite their differences, neither party wants new elections.
@@ -1060,6 +1063,7 @@ But the partners are divided on speed. The smaller, more conservative Junts are 
 ![img](https://espresso-prod.s3.amazonaws.com/files/public/styles/adaptive_mid/public/images/20221008_dap337.jpg?itok=dr02BvL-)
 
 PHOTO: REUTERS
+
 The general election in Lesotho on Friday will be one of the least-watched votes in the world this year. The neglect is understandable: Lesotho is a poor and tiny country of just 2.2m people, entirely encircled by South Africa. Yet a new government could jolt the former British protectorate to turn the page on a tumultuous recent history.
 
 Since independence in 1966 Lesotho has seen coups, attempted coups, prime ministers fleeing the country, assassinations of military bosses, unstable coalition governments and, most recently, a former prime minister accused of conspiring with his third wife to murder his second. (The charges were dropped in July.) Corruption and crime are rampant. Politics is about access to spoils, not the pursuit of the greater good.
@@ -1073,6 +1077,7 @@ The next government will probably be another coalition involving ideologically i
 ![img](https://espresso-prod.s3.amazonaws.com/files/public/styles/adaptive_mid/public/images/20221008_dap339.jpg?itok=zTYnAoF_)
 
 PHOTO: ALLSTAR
+
 Sixty years ago this week the Beatles released their debut single, “Love Me Do”, and the first James Bond film, “Dr No”, premiered at the London Pavilion. Neither was an instant hit. Liverpool’s finest failed to make Britain’s top ten, whilst Sean Connery’s Bond was roasted by the critics, one calling him “a great big hairy marshmallow”. Things worked out in the end, of course; the 25 official Bond films have made more than $7bn at the box office, and the Beatles retain most of the world records for shifting pop music.
 
 John Higgs explores the seismic, and intertwining, cultural impact of the Beatles and Bond in his new book, “Love and Let Die”. Both heralded a vivid, technicolour break with the buttoned-up wartime generation. Yet, as Mr Higgs writes, alongside the jetset modernity, the Bond films cleaved to attitudes on women and class that were already reactionary, and the Beatles won acclaim with the “faux Victoriana” of “Sgt. Pepper”. Little wonder they were so popular in Britain.
@@ -1161,6 +1166,7 @@ Credit Suisse said it would buy back up to $3bn of its own debt in a bid to reas
 ![img](https://cdn.espresso.economist.com/files/public/images/20221008_dap354.jpg)
 
 PHOTO: EPA
+
 Ukraine’s blistering counter-offensive has, in recent weeks, left Russian forces in disarray, particularly in the Kharkiv region in the east and Kherson in the south. But the current wave of liberation will probably soon reach its peak.
 
 This month Ukrainian soldiers in Kherson pushed Russian fighters along the Dnieper river, 30km from the previous front line. And they have continued to make substantial gains in the north of the region. Ukraine’s troops are honing in on parts of northern Luhansk, the only one of the four annexed regions where Russia enjoys anything close to complete control. They hope to push the Russians back to their positions from before the full-scale invasion.
@@ -1177,6 +1183,7 @@ But the window of opportunity may prove short. Russian forces will soon be bolst
 
 PHOTO: AP
 
+
 One indication of a tight election is whether party bigwigs hit the campaign trail. Nevada has become a runway for wannabe Republican presidential candidates. Donald Trump will head to the state on Saturday to stump for Adam Laxalt and Joe Lombardo, the Republican hopefuls for Senate and governor. Ron DeSantis, the governor of Florida, and various members of Mr Trump’s former cabinet, have also visited the Silver State.
 
 The Economist’s midterms model suggests Nevada’s Senate race is a toss-up, making it a crucial battleground for control of Congress’s upper chamber. The contest will test whether Catherine Cortez Masto, the Democratic incumbent, can woo Latino voters who abandoned her party between 2016 and 2020. Democrats may also discover whether their political machine can endure despite the death of its architect and former Senate majority leader, Harry Reid. Reid’s machine turned Nevada light blue. Come November it may have a different hue.
@@ -1188,6 +1195,7 @@ The Economist’s midterms model suggests Nevada’s Senate race is a toss-up, m
 ![img](https://cdn.espresso.economist.com/files/public/images/20221008_dap357.jpg)
 
 PHOTO: GETTY IMAGES
+
 
 In the late 1950s a working-class black and Hispanic neighbourhood in Manhattan was razed to make way for Lincoln Centre for the Performing Arts. This unsavoury legacy will be addressed when David Geffen Hall—the New York Philharmonic’s home at Lincoln Centre—re-opens on Saturday after a two-year, $550m renovation.
 
@@ -1205,6 +1213,7 @@ PHOTO: EPA
 
 
 
+
 According to bookmakers, there is little doubt which team will win the Women’s Rugby World Cup, which begins on Saturday in Auckland, New Zealand. Betting $100 on England will win you only $50 if they prevail, such is the recent dominance of the Red Roses. England enter the tournament on an unprecedented 25-match winning streak.
 
 The last two times the team played New Zealand, who are five-time World Cup winners and current holders, England won 43-12 and 56-15. Canada and France, who have been knocked out at the semi-final stage on six occasions, are the other teams with some hope of glory. But it would be a big surprise if the final, on November 12th, were anything other than a repeat of the 2017 event. Five years ago, New Zealand staged a storming second-half comeback, to win 41-32. This time around, England are odds-on to exact their revenge.
@@ -1216,6 +1225,7 @@ The last two times the team played New Zealand, who are five-time World Cup winn
 ![img](https://cdn.espresso.economist.com/files/public/images/20221008_dap341.jpg)
 
 PHOTO: GETTY IMAGES
+
 
 
 
@@ -1360,6 +1370,7 @@ Iran’s state-run broadcaster appeared to be hacked when a news bulletin was in
 ![img](https://cdn.espresso.economist.com/files/public/images/20221008_dap360.jpg)
 
 PHOTO: REUTERS
+
 Monday is National Day in Taiwan. This year’s slogan is “defending our land together”: a fitting theme given persistently high tensions in the Taiwan Strait. In August Nancy Pelosi, the speaker of America’s House of Representatives, visited the self-governing island and called her country’s support for Taiwan “ironclad”. China responded with military exercises to show its ability to blockade the island, which China regards as part of its territory.
 
 Tsai Ing-wen, Taiwan’s president, wants to signal that Taiwan is uncowed by Chinese threats. Her government has continued to welcome delegations from America, Canada, Germany, Japan and other friendly countries. It has also increased defense spending and is mulling extensions to conscription. But opinion polls indicate low confidence in Taiwan’s ability to fend off a Chinese invasion. Non-governmental groups offer to train people in civil defence, but their reach is small. National Day is a chance to bolster public resolve.
@@ -1371,6 +1382,7 @@ Tsai Ing-wen, Taiwan’s president, wants to signal that Taiwan is uncowed by Ch
 ![img](https://cdn.espresso.economist.com/files/public/images/20221008_dap363.jpg)
 
 PHOTO: REUTERS
+
 The diplomatic battle over Ukraine moves to the UN General Assembly on Monday when delegates debate a Western resolution condemning Russia’s annexation of four Ukrainian provinces and demanding its full withdrawal from occupied lands. Russia vetoed a similar move in the Security Council last month. It cannot do so in the General Assembly, but the body’s resolutions are not binding. Instead the vote—which may take place on Wednesday—is intended to isolate the Kremlin.
 
 Repeatedly humiliated at the UN, Russia wants a secret vote. But the West is nervous, too. It secured a 141-5 vote against Russia in March, but many countries are weary of the war.
@@ -1384,6 +1396,7 @@ This week most attention will be on the fence-sitters, among them many poor stat
 ![img](https://cdn.espresso.economist.com/files/public/images/20221008_dap355.jpg)
 
 PHOTO: GETTY IMAGES
+
 Policymakers from around the world gather in Washington on Monday for a week of annual meetings of the International Monetary Fund and the World Bank, amid sharply deteriorating conditions for the global economy.
 
 Russia’s war in Ukraine has dashed the cautious optimism expressed last year. The energy crisis and soaring inflation will occupy participants. New IMF forecasts are likely to project that economies accounting for at least one-third of global output will soon be in recession. Kristalina Georgieva, the IMF’s managing director, has warned that geopolitical and financial-sector risks mean that conditions are more likely to worsen than improve.
@@ -1397,6 +1410,7 @@ Officials will look for opportunities to co-operate on inflation-fighting and de
 ![img](https://cdn.espresso.economist.com/files/public/images/20221008_dap362.jpg)
 
 PHOTO: AP
+
 Ohio hosts its first debate between two candidates for the Senate, the Republican J.D. Vance and his Democratic opponent, Tim Ryan, on Monday. The Buckeye state is a fairly safe Republican stronghold. But Mr Vance, a venture capitalist who came to prominence after writing “Hillbilly Elegy”, a best-selling book about the culture of Appalachians, has struggled. He and Mr Ryan are in a dead heat; the Democratic candidate has raised enormous sums from small donors.
 
 Mr Vance’s campaign has sounded almost apocalyptic at times, focusing on the threats supposedly posed to Ohio from illegal-immigrant drug pushers and their Democrat enablers. Donald Trump has stumped with him, as has Mr Trump’s son, Don Junior. Many Republican candidates across the country are chasing the former president’s supporters. The reaction to Monday’s debate will indicate whether the double Trump endorsement can push Mr Vance over the line.
@@ -1408,6 +1422,7 @@ Mr Vance’s campaign has sounded almost apocalyptic at times, focusing on the t
 ![img](https://cdn.espresso.economist.com/files/public/images/20221008_dap361.jpg)
 
 PHOTO: GETTY IMAGES
+
 As winter approaches, all eyes in Europe are on the continent’s gas supplies and whether anything can be done to ease dependence on Russia. Storage facilities are almost full. But Germany lacks enough import capacity to meet demand through shipped liquified natural gas. On Monday a retrofitted pipeline from France will open, providing relief of around 4000 GWh per month—around 3% of Germany’s demand in a typical winter month.
 
 Whether that’s enough depends on the weather and on Germans’ willingness to put on an extra jumper. The country’s gas network regulator has called once more on households to cut back in order to avoid gas rationing. Germany’s eastern and southern neighbours, including Ukraine, will depend on supplies from the West, too. A new floating terminal in the Netherlands has started receiving deliveries to fill pipelines going east. But gas will remain scarce in central and eastern Europe. Hope for a mild and rainy Christmas.
@@ -1602,6 +1617,7 @@ North Korea’s state news agency said that the country’s testing of 12 ballis
 ![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap306.jpg)
 
 PHOTO: GETTY IMAGES
+
 The G7, a club of rich democracies, will hold an emergency meeting on Tuesday with Ukraine’s president, Volodymyr Zelensky. The hastily convened session is in response to Russia’s missile attack on civilian infrastructure and cities in Ukraine on Monday which killed at least 11 people and injured about 60. The European Union said that such attacks constitute war crimes. The G7 will consider what further pressure can be applied to Russia to stop its assault.
 
 Monday’s missiles were retaliation for an attack on a bridge linking Crimea with Russia. But many worry that the bloodshed heralds a new chapter in an already cruel war. It appears to be a statement of intent from President Vladimir Putin and Sergei Surovikin, the general appointed on Saturday as overall Russian commander of the war. General Surovikin has a well-earned reputation for brutality and ruthlessness. One Ukrainian official says he has studied the general’s involvement in Afghanistan, two Chechen wars and Russia’s air war in Syria and had come to a grim conclusion: “He’s a butcher.”
@@ -1613,6 +1629,7 @@ Monday’s missiles were retaliation for an attack on a bridge linking Crimea wi
 ![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap304.jpg)
 
 PHOTO: GETTY IMAGES
+
 More than two years of pandemic-induced isolation have ended in Japan. From Tuesday travellers from dozens of countries will be able to enter without visas and move around without government-approved guides.
 
 Japan’s government hopes tourists will help reinvigorate a flagging economy. Some 32m foreigners visited Japan in 2019; inbound tourism spending amounted to nearly ¥5trn ($34bn today). The country had planned for 40m arrivals in 2020, with the summer Olympics in Tokyo. Instead, just 4m entered; last year the number dipped to below 250,000.
@@ -1626,6 +1643,7 @@ The yen being at its weakest level against the dollar in nearly 25 years may ins
 ![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap305.jpg)
 
 PHOTO: AFP
+
 Nearly a year has passed since the company once known as Facebook renamed itself Meta. The rebranding was meant to signal the firm’s multi-billion-dollar, multi-year shift in focus towards the “metaverse”, a loose term envisioning an immersive, virtual-reality driven internet. The huge investment, together with flagging revenues in Meta’s core social-networking businesses, which include Instagram and WhatsApp as well as Facebook, have sent profits and shares tumbling.
 
 Does the firm have anything to show yet for its big bet? Investors and consumers will find out on Tuesday at Meta Connect, where progress on Meta’s virtual- and augmented-reality technologies will be revealed. These are likely to include an upgraded and pricier version of the Quest virtual-reality headset. Meta is also expected to unveil improvements to Horizon, a virtual-reality social network released last year for Quest users. Screenshots from Horizon of a cartoonish, poorly rendered version of Mark Zuckerberg, the company's founder, became a meme this summer.
@@ -1639,6 +1657,7 @@ Does the firm have anything to show yet for its big bet? Investors and consumers
 ![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap307.jpg)
 
 PHOTO: NATURE PICTURE LIBRARY
+
 Fat Bear Tuesday marks the climax of Fat Bear Week, a contest run by Katmai National Park in southern Alaska to identify the brown bear who gains the most weight while preparing for hibernation. Fans share before and after photos of the bears, taken from webcams, and then vote. The final round, to crown a winner, will be between 747, a male nicknamed “Bear Force One”, and either 128 (“Grazer”), a perpetual contender, or 901, a young female.
 
 The contest, which began in 2014, serves a purpose besides ogling champion chunksters. The park’s webcams bring Alaska’s wilderness to people who otherwise may never see it. It also draws attention to conservation. Katmai’s 2,200 bears are so rotund because they feed from a healthy salmon run, untouched by overfishing and dam construction. Park rangers argue the joyful contest has gone viral because it helps dispel gloomy feelings about habitat loss and climate change. May the fattest bear win.
@@ -1650,6 +1669,7 @@ The contest, which began in 2014, serves a purpose besides ogling champion chunk
 ![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap303.jpg)
 
 PHOTO: AFP
+
 On Tuesday morning Damien Hirst, a British artist, will begin burning a collection of paintings valued at about $10m as the finale of “The Currency”, his project pitting physical art against non-fungible tokens.
 
 Last year 10,000 of Mr Hirst’s paintings featuring colourful enamel spots, made in 2016, were made into digital files, known as NFTs. Each NFT was sold for $2,000 but buyers were later given the choice between keeping the NFT or swapping it for the painting. Unwanted paintings are now being burned and rejected NFTs deleted.
@@ -1709,6 +1729,7 @@ China has ramped up anti-covid measures in some big cities ahead of the Communis
 ![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap314.jpg)
 
 PHOTO: REUTERS
+
 Vladimir Putin, the Russian president waging war on Ukraine, is among the heads of state who will gather in Astana, Kazakhstan’s capital, on Wednesday. The leaders are meeting for the Conference on Interaction and Confidence Building Measures in Asia (CICA), an international forum that ostensibly promotes peace and security in its region.
 
 CICA’s 27 member states, which include China and India, cover much of the Middle East and Asia. Kazakhstan’s president, Kassym-Zhomart Tokayev, hopes to use this meeting to bolster CICA’s international relevance. As well as Mr Putin the presidents of ten other countries, including Recep Tayyip Erdogan of Turkey and Ebrahim Raisi of Iran, will attend.
@@ -1724,6 +1745,7 @@ The heads of some attending countries, including Mr Tokayev, are allies of Mr Pu
 ![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap316.jpg)
 
 PHOTO: GETTY IMAGES
+
 Thanks to China’s strict quarantine rules, few mainland tourists cross into semi-autonomous Hong Kong to sample the city’s delights, including its tasty dim sum restaurants serving small dishes and tea. But mainlanders are snapping up a different kind of Hong Kong fare: bonds denominated in the mainland’s currency but issued in the city’s international market, which stands outside China’s capital controls.
 
 These securities, nicknamed “dim sum” bonds, are popular with mainland buyers because they offer slightly higher yields than equivalent onshore assets. And they are attractive to sellers because, thanks to rising interest rates in America, it is now cheaper to borrow in the yuan than in the dollar. China’s government will itself sell another 5.5bn-yuan ($770m) worth of bonds on Wednesday. As an international financial centre, Hong Kong benefits from this turnover. The sale thus serves two purposes. It helps the mainland by raising money for it. And it helps Hong Kong by raising money in it.
@@ -1735,6 +1757,7 @@ These securities, nicknamed “dim sum” bonds, are popular with mainland buyer
 ![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap310.jpg)
 
 PHOTO: ALAMY
+
 On Wednesday President Joe Biden is expected to declare federal protection for the first “national monument” of his presidency, at Camp Hale high in Colorado’s Rocky Mountains. During the second world war, the army’s 10th Mountain Division learned to ski and rock climb there before being deployed to the European Alps. It will be the 159th area designated as such by a president.
 
 The move is probably intended to boost Michael Bennet, a Democratic senator who has fought to preserve the site, before the midterm elections. It will also anger western Republicans, who view national monuments, on which activities such as drilling, mining, logging and grazing are restricted, as federal overreach. In August Republicans in Utah sued the Biden administration for rolling back Donald Trump’s decision to reduce in size two monuments there. If that case makes it to the Supreme Court, justices may consider the scope of the Antiquities Act, which allows presidents to designate vast monuments. Until then their number looks set to rise.
@@ -1746,6 +1769,7 @@ The move is probably intended to boost Michael Bennet, a Democratic senator who 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap313.jpg)
 
 PHOTO: GETTY IMAGES
+
 On Wednesday evening Sinn Féin, a political party which wants the reunification of Ireland, will hold its inaugural People’s Assembly, in Belfast. The event is the first in its “Commission on the Future of Ireland” campaign to gather opinions from across the island.
 
 Polls in Northern Ireland mostly show support for Irish unity far behind that for keeping Northern Ireland in the United Kingdom. In May, Sinn Féin became Northern Ireland’s largest political party—but still took just 29% of the vote. In the Republic of Ireland the party could do well enough in the next general election, in 2025, to lead the next governing coalition.
@@ -1759,6 +1783,7 @@ Despite this, and the party’s pledge that the commission will engage with Prot
 ![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap311.jpg)
 
 PHOTO: REUTERS
+
 A First Amendment creativity quarrel arrives at America’s Supreme Court on Wednesday. The case pits a photographer, Lynn Goldsmith, against the Andy Warhol Foundation for the Visual Arts (AWF), which controls the late artist’s estate.
 
 In 1981, Ms Goldsmith took a photograph of Prince, a musician. Three years later, Vanity Fair, a magazine, licensed the black-and-white image from Ms Goldsmith and commissioned Andy Warhol to use it as the basis of “Purple Prince”, a colourful screenprint. Warhol eventually made 16 “Prince” images in various colours. When Prince died in 2016, the AWF foundation licensed “Orange Prince” to Condé Nast, which owns Vanity Fair, without informing (or paying) Ms Goldsmith.
@@ -1821,6 +1846,7 @@ Russia’s security service said it had detained eight people in connection with
 ![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap329.jpg)
 
 PHOTO: PRESS ASSOCIATION
+
 On the surface, it might seem like a relief. The latest data on headline inflation in America, due to be released on Thursday, are likely to be relatively placid for a third consecutive month. Prices are forecast to have risen about 0.2% in September compared with August. The problem is that, beneath the surface, inflationary momentum is still far too strong for comfort. Core inflation (stripping out volatile food and energy costs) may have risen by about 0.5% month-on-month.
 
 With underlying inflation still running that high, investors are all but certain that the Federal Reserve will deliver yet another jumbo rate increase next month and perhaps one more before the end of the year. The aggressive pace of tightening is weighing heavily on global stock and bond markets, leading some critics to call for the Fed to relent. But until inflation itself relents, it will stay on the warpath.
@@ -1832,6 +1858,7 @@ With underlying inflation still running that high, investors are all but certain
 ![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap319_1.jpg)
 
 PHOTO: EPA
+
 The disastrous consequences of the British government’s mini-budget of September 23rd continue to reverberate through febrile markets. Days after the budget the Bank of England was forced to intervene with an emergency bond-buying scheme aimed at helping troubled pension funds and stopping a fire-sale of gilts. On Wednesday the bank reiterated its commitment to ending the scheme by Friday—but only after mixed-messaging had sent the pound whipsawing.
 
 But what happens after Friday? The worry is that after the withdrawal of the bank as the buyer of last resort, chaotic selling will resume. The bank’s governor, Andrew Bailey, told the pension funds on Tuesday that they had to “sort out” their financial resilience before the deadline. Few in the market, however, seriously expect the bank to sit on its hands if widespread disorder returns. Underlying all the jitters is a basic scepticism about the government’s ability to fund its planned tax cuts. Until that is dealt with, expect more jitters.
@@ -1843,6 +1870,7 @@ But what happens after Friday? The worry is that after the withdrawal of the ban
 ![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap327.jpg)
 
 PHOTO: DAVE SIMONDS
+
 The congressional committee investigating the attack on the Capitol on January 6th 2021 will hold what is expected to be its final hearing on Thursday. This instalment will focus on summarising the case against Donald Trump for failing to stop those of his supporters who sacked the building in a bid to overturn his election loss. The committee plans to issue a final report before the next Congress sits in January. If Republicans take control after November’s elections, they are likely to suspend the committee’s unfinished work and to counter-attack by blaming Democrats for intelligence and security failures on the day.
 
 Exactly how much criminality the current investigators have unearthed is unclear. The Department of Justice, which makes independent decisions on criminal charges, has seized phones of some of the central actors identified by the committee. But the scope of its inquiry remains unclear. Mr Trump, who is no stranger to legal jeopardy, appears largely unfazed.
@@ -1854,6 +1882,7 @@ Exactly how much criminality the current investigators have unearthed is unclear
 ![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap328.jpg)
 
 PHOTO: GETTY IMAGES
+
 On Thursday Italy’s new parliament meets for the first time since last month’s general election. A coalition of right-wing parties emerged with solid majorities in both houses. Together the Brothers of Italy (FdI), the Northern League and Silvio Berlusconi’s Forza Italia party won 74 seats more than the opposition in the 400-member Chamber of Deputies, and 30 more in the 200-seat Senate. Giorgia Meloni of the hard-right FdI is almost certain to become prime minister before the end of the month. But the lawmakers’ first task will be to choose speakers for both houses.
 
 Deciding who will preside over the Senate is particularly sensitive: the speaker would succeed Italy’s 81 year-old president, Sergio Mattarella, were he to die or be incapacitated. Neither of the two front-runners is a stranger to controversy. The FdI’s Ignazio La Russa joked during the pandemic that Italians should use the fascist salute to avoid shaking hands. The League’s Roberto Calderoli once compared a black minister to an orangutan.
@@ -1867,6 +1896,7 @@ Deciding who will preside over the Senate is particularly sensitive: the speaker
 ![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap325.jpg)
 
 PHOTO: AVENIDA
+
 For nine years the Immigration Film Fest has shared the stories of immigrants—often produced by immigrants themselves. This year’s event, which begins on Thursday with screenings in Washington and online, will showcase nearly 40.
 “Operation: Allies Welcome” follows Afghans fleeing the Taliban as they settle in northern Virginia. “Stop Time” chronicles how a sanctuary church housed Lucio Perez, an undocumented migrant, for three years in defiance of a deportation order.
 
@@ -1938,6 +1968,7 @@ Researchers from Oxford University have discovered that covid vaccines are more 
 #### Wall Street banks report
 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap337.jpg)PHOTO: REUTERS
+
 Banks are unusual companies. Rising interest rates and slowing growth are a double-whammy for other firms, driving up costs and hurting revenues. But higher rates are a boon for banks, who make money on the spread they can charge between the cost of borrowing funds and lending them out (called net interest income, or NII). This swells with higher interest rates.
 
 The question is whether high NII offsets sluggishness elsewhere in the business and rising costs. Eventually high rates and slow growth will cause loan losses to rise, which banks must account for by setting aside buffers. Investment banking activity—like mergers and acquisitions or IPOs—is still dormant. But trading activity was probably strong in still volatile markets. On Friday JP Morgan Chase, Citigroup and Morgan Stanley report their third-quarter earnings. Analysts seem to think the good might outweigh the bad. JPM, for example, is expected to earn close to $3 a share, around 10-15% higher than in the first two quarters of the year.
@@ -1949,6 +1980,7 @@ The question is whether high NII offsets sluggishness elsewhere in the business 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap332_0.jpg)
 
 PHOTO: EPA
+
 A highly anticipated debate between the two candidates for a Senate seat in Georgia will take place on Friday. Raphael Warnock, the Democratic incumbent and a reverend, has long been keen to contrast his oratorical skills with Herschel Walker, a Republican former American footballer who is a singularly untalented communicator. Mr Walker, who tried for months to shirk the debate, is mired in several scandals. The latest, in which he reportedly paid for an ex-girlfriend’s abortion despite his avowedly pro-life stance, has rocked the campaign.
 
 The race for governor of Georgia, though, looks good for the Republicans, with Brian Kemp leading Stacey Abrams in the polls. That the Senate race favours Mr Warnock is a reflection of his abilities as a politician but also of his exceptionally weak opponent. Overall control of the Senate after the November 8th midterms may be decided by the good people of Georgia—and thus the poor nomination decisions of its state Republican Party.
@@ -1962,6 +1994,7 @@ For more about the midterms and the race to control Congress, explore our model.
 #### Haiti’s criminal chaos
 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap336.jpg)PHOTO: AP
+
 The UN is considering whether to send troops to Haiti following a request last week by the government. Ariel Henry, the prime minister, has asked for a “specialised armed force” to help crack down on criminal gangs. America has sent a coastguard vessel to patrol Haitian waters, and promised more aid. But it has stopped short of committing manpower.
 
 Never stable, since the assassination of Jovenel Moïse, the president, in July 2021, Haiti has descended into chaos. The gangs blockade fuel distribution and murder people with impunity. The new school term has been postponed. Hospitals lack supplies. Cholera has broken out.
@@ -1975,6 +2008,7 @@ Yet Mr Henry’s request is controversial. The prime minister, installed as acti
 ![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap333.jpg)
 
 PHOTO: GETTY IMAGES
+
 On September 30th Burkina Faso suffered its second coup this year. Captain Ibrahim Traoré declared he was forced to take action because the strongmen who overthrew the elected government in January were failing to stop the region’s jihadists, loosely affiliated to al-Qaeda and Islamic State, from wreaking havoc. The earlier putschists had made the same claim of the regime they usurped.
 
 As their coup-mongering predecessors did, the soldiers have convened a conference with political parties and some NGOs, which begins on Friday. In theory, its participants will draw up a transitional charter and select a transitional president. In practice, the men with guns will decide who is in charge: perhaps Captain Traoré himself will simply carry on.
@@ -1988,6 +2022,7 @@ The last putschists promised to hand back power to civilians by July 2024. Capta
 ![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap338.jpg)
 
 PHOTO: GETTY IMAGES
+
 A Himalayan race to raise awareness of climate change is under way in Bhutan. For five days until Monday, 29 elite runners will follow 206km (126 miles) of the “snowman track,” a path forged by yak herders. With an average elevation of 4,270 metres, the inaugural Snowman Race will be one of the hardest ultramarathons in the world.
 
 Conditions in Bhutan are also challenging. On the plus side, it is the world’s only carbon-negative country: its forests absorb three times as much carbon dioxide as the mountain kingdom emits. But rising temperatures are causing havoc. Himalayan glaciers are melting fast; two-thirds may be gone by 2100. That could have devastating consequences, of the sort suffered by Pakistan when melting glaciers recently contributed to terrible floods. Bhutan’s “dragon king”, Jigme Khesar Namgyel Wangchuck, is a keen conservationist. In backing the Snowman Race he hopes that others—including China and India, Bhutan’s giant, polluting neighbours—will be spurred into action.
@@ -2077,6 +2112,7 @@ Amid rising tensions on the Korean peninsula the north fired a short-range balli
 ![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap359.jpg)
 
 PHOTO: GETTY IMAGES
+
 Ukrainian cities are still reeling from the barrage of Russian missiles that destroyed civilian infrastructure across the country at the start of the week. But for the soldiers on the ground, there is no rest. Russian mercenaries from the Wagner group have continued their slow, grinding advance on the city of Bakhmut in Donetsk province, in Ukraine’s east.
 
 But Russia is on the back foot everywhere else. In Luhansk province, also in eastern Ukraine, Russian troops are digging in, anticipating a Ukrainian attack towards Svatove, part of Russia’s new defensive line. Russia’s position is even shakier in the south. Ukraine continues to advance towards a reported 20,000 Russian soldiers on the west bank of the Dnieper river near Kherson city. Their position looks extremely fragile. Vladimir Saldo, the head of Russia’s puppet regime in Kherson, has asked for Russia’s help in evacuating residents from the area. “We know that Russia doesn’t abandon its own,” he said earlier this week, plaintively.
@@ -2088,6 +2124,7 @@ But Russia is on the back foot everywhere else. In Luhansk province, also in eas
 ![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap342.jpg)
 
 PHOTO: GETTY IMAGES
+
 The twice-yearly Canton Fair, China’s largest trade show, began in the 1950s. It was held during China’s Great Famine and its Cultural Revolution. (Mao badges were then a hot commodity.) Even when the SARS epidemic struck in 2003, the show went on. But since the arrival of covid-19, the fair has moved online.
 
 Over 34,000 Chinese firms are expected to show off their wares virtually in the 132nd edition, which begins on Saturday. Many suppliers will host live-stream video demonstrations of their products. Buyers may miss the “touch and feel” that were an important part of deal-making in the past.
@@ -2101,6 +2138,7 @@ As the world economy slows, China’s trade is also entering a difficult period.
 ![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap340_1.jpg)
 
 PHOTO: PA
+
 The French are on edge. Days of strikes at oil refineries, by workers demanding pay increases, have led to petrol shortages and long queues. Unions have called a general strike for October 18th. On Sunday demonstrators will take to the streets of Paris to protest against the rising cost of living. The march is organised by Jean-Luc Mélenchon’s left-wing alliance, NUPES. Some unionists have promised to join in. Annie Ernaux, a French novelist and winner of this year’s Nobel prize for literature, is also backing the demonstrators. Never shy of a provocative allusion, Mr Mélenchon has called on participants to “do better” than the women’s march in 1789, an early event in the French Revolution.
 
 The planned show of force comes at an awkward time for President Emmanuel Macron. He is spending heavily to tamp down energy bills. But he is also planning to raise the retirement age, an unpopular measure, after having lost his parliamentary majority. France looks set for a difficult autumn, on and off the streets.
@@ -2112,6 +2150,7 @@ The planned show of force comes at an awkward time for President Emmanuel Macron
 ![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap341.jpg)
 
 PHOTO: GETTY IMAGES
+
 The West Indies are the only team to win cricket’s Twenty20 World Cup twice, triumphing in 2012 in Sri Lanka and again four years later in India. That second win was particularly memorable. Needing a daunting 19 runs from their final six balls, Carlos Brathwaite hit England’s Ben Stokes into the stands for four consecutive sixes. But if the Windies are to prevail in this year’s tournament, which begins in Australia on Sunday, they will have to do it the hard way.
 
 Their dismal showing in the previous World Cup in 2021, where they lost four of their five matches, consigned them to qualifying for this edition. To reach the main stage, they will have to finish in the top two of a group also containing Ireland, Scotland and Zimbabwe. They will be favourites, but their task has been made more difficult by the absence of star batsman Shimron Hetmyer, who was dropped from the squad after missing his flight to Australia.
@@ -2123,6 +2162,7 @@ Their dismal showing in the previous World Cup in 2021, where they lost four of 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap360.jpg)
 
 PHOTO: GETTY IMAGES
+
 It was his rapid promotion that surprised many. Just a few months into his post as the police chief of Talesh, an Iranian provincial backwater, Mohammed Rostami Gachi was promoted to head the Islamic Republic’s morality police 400km away in the capital, Tehran. Previous Iranian governments had never thought much of him. But the incoming administration of Ibraham Raisi in 2021 admired Mr Gachi’s hardline beliefs. Shortly after taking the job he declared his intention to enforce the mandatory veil for women, which had fallen loose under the pragmatist presidency of Hassan Rouhani. “Those who stubbornly remove the hijab are criminals,” Mr Gachi told Iran’s press.
 
 Over the following months, he reactivated the morality police. Their men in dark green uniforms and women in black chadors scoured the streets hunting for infringements of sharia. They broke up bands jamming in cafes. They hauled girls caught for “bad” hijabs away in their windowless vans and took them to facilities for “re-education”. Sometimes they gave them a beating. And then, on September 13th, Mr Gachi’s men carted away 22-year-old Mahsa Amini to her death three days later for improperly wearing the veil.
@@ -2228,6 +2268,7 @@ Uganda imposed a three-week lockdown in two districts of its central region to c
 ![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap346.jpg)
 
 PHOTO: AFP
+
 On Monday NATO is expected to carry out its annual nuclear drills, Steadfast Noon. The exercises in Belgium, postponed from earlier this year after Russia’s invasion of Ukraine, include 14 of the alliance’s 30 members. There will be no live warheads, but the manoeuvres include jets that can carry nuclear bombs. NATO’s secretary general, Jens Stoltenberg, has called the operation “routine training” designed to keep the deterrent “safe, secure and effective”.
 
 But the war in Ukraine means that the drills will be far from business as usual. Russia’s president, Vladimir Putin, has made transparent threats to use nuclear weapons amid his faltering invasion. The head of GCHQ, Britain’s spy agency, said last week that there were no signs of an imminent attack, but fears of escalation are real. NATO expects that Russia will soon hold its own nuclear exercise, dubbed Grom.
@@ -2241,6 +2282,7 @@ The alliance is betting that conducting its nuclear drills helps keep its deterr
 ![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap348.jpg)
 
 PHOTO: GETTY IMAGES
+
 Sceptical of splurging marketing budgets on fancy stands in vast exhibition centres, few of the world’s carmakers will congregate in Paris for the first motor show in the city since 2018, which opens on Monday. Flying the tricolore will be France’s Renault and Peugeot, the latter of which joins other brands owned by Stellantis. More notable will be the appearance of BYD and Great Wall Motors, two Chinese brands that will use the event to flaunt electric cars they hope will break into the European market.
 
 China, home to the world’s biggest car industry, also churns out more electric vehicles than any other country. Several of its makers have Europe in their sights. Nio, a Tesla wannabe, recently showed off three electric models in Berlin that will soon be more widely available on the continent. Already nearly one in 20 EVs sold in Europe is Chinese. Europe’s carmakers, already struggling with the fallout from the pandemic and the transition to electrification, face one more problem.
@@ -2252,6 +2294,7 @@ China, home to the world’s biggest car industry, also churns out more electric
 ![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap349.jpg)
 
 PHOTO: AP
+
 On Monday members of the Congress, India’s main opposition party, will vote for a new president. For the first time in nearly 25 years the new boss will be someone outside of the Gandhi clan, which has long run the party as a family business. The choice is between Shashi Tharoor, a smooth-talking diplomat-turned-politician, and Mallikarjun Kharge, an 80-year-old party veteran and Gandhi-family stooge.
 
 Mr Tharoor believes that fresh, non-dynastic leadership can revitalise India’s grand old party. With a general election less than two years away, the Congress desperately needs it. In the past two elections the party has been swept aside by the ruling Hindu-nationalist Bharatiya Janata Party. In 2019 the BJP took nearly double the Congress’s share of the vote.
@@ -2265,6 +2308,7 @@ But Mr Tharoor’s hopes may be in vain. The build-up to the Congress’s leader
 ![img](https://cdn.espresso.economist.com/files/public/images/huntpic.jpg)
 
 PHOTO: AFP
+
 A fortnight ago, Jeremy Hunt’s career in high office appeared to be at an end. An affable and fastidious former foreign secretary, he had twice run to be leader of the Conservative Party, without success. Now he is the most powerful man in Britain. On October 14th Liz Truss, the prime minister, fired Kwasi Kwarteng, a close ally, as chancellor, and appointed Mr Hunt in his place. He was tasked with clawing back the trust of bond markets after Mr Kwarteng’s tax-cutting budget had triggered a market meltdown.
 
 But a partial reversal of some measures on Friday wasn’t enough to satisfy traders. So over the weekend, Mr Hunt made clear that more U-turns, new tax rises and cuts to government spending would be necessary. With Mr Hunt in the driving seat, Ms Truss is now prime minister in name only. Conservative MPs are clamouring to force her from office. Westminster this week will be a vipers’ nest.
@@ -2276,6 +2320,7 @@ But a partial reversal of some measures on Friday wasn’t enough to satisfy tra
 ![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap350.jpg)
 
 PHOTO: BOOKER PRIZE 2022
+
 The Booker prize briefly turns literature into hot news. The most coveted honour in English-language fiction, to be awarded on Monday night, makes six titles glow with the heat of incendiary headlines. In “Glory”, NoViolet Bulawayo’s talking animals stage a political parable of her unhappy homeland, Zimbabwe. Percival Everett’s “The Trees” blends mystery, horror and elegy as it unearths racist atrocities in the American South. Shehan Karunatilaka’s “The Seven Moons of Maali Almeida”, an incandescent tragicomic story narrated by a ghost, torches corruption and injustice in Sri Lanka.
 
 Quietly and succinctly—at 116 pages, hers is the shortest book ever shortlisted— Claire Keegan burns through rural Ireland’s abusive secrets in “Small Things Like These”. Alan Garner, a veteran fabulist, unites northern English folklore with quantum physics in “Treacle Walker”; and “Oh William!’ is the third instalment in a lauded family saga by Elizabeth Strout, an American author. Her book is popular with bookworms and bookies alike. For sheer prose chutzpah, Mr Karunatilaka should take the gong. But “Glory” might live up to its name.
@@ -2332,6 +2377,7 @@ The Swedish parliament voted for Moderate Party leader Ulf Kristersson to become
 ![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap312.jpg)
 
 PHOTO: EPA
+
 America’s army plans this week to publish a request to weapons manufacturers for better technologies to defeat loitering munitions, known as kamikaze or suicide drones. Recent Russian attacks on Ukraine with an Iranian-made drone, the Shahed-136, including deadly volleys launched at Kyiv on Monday, have shown just how destructive they can be.
 
 The Shahed (“martyr” in Persian) is not exactly stealthy. Ukrainians call them “flying mopeds”. Ukraine claims its armed forces have shot down 75% of the drones launched by Russia during this war. Some have even been destroyed with small arms. But kamikaze drones are relatively cheap and so continue to be used often.
@@ -2345,6 +2391,7 @@ America’s Joint Counter-small Unmanned Aircraft Systems Office (JCO) will issu
 ![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap307.jpg)
 
 PHOTO: GETTY IMAGES
+
 “There’s not easy money there,” said Reed Hastings, Netflix’s boss, explaining in 2020 why the world’s biggest streaming service would avoid the advertising business. So why will Mr Hastings spend an earnings call on Tuesday telling investors that, in fact, advertising is just what Netflix needs?
 
 The company’s recent share performance explains the U-turn. In 2020-21, when Netflix added 40m subscribers amid covid-19 lockdowns, the company’s stock soared. But this year subscriptions have stalled and investors have fled. Netflix shares have fallen by two-thirds since November, torching nearly $200bn in market value.
@@ -2360,6 +2407,7 @@ Can ads turn things around? At $15.49 a month in America, Netflix’s standard p
 ![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap305.jpg)
 
 PHOTO: GETTY IMAGES
+
 On Tuesday night Florida’s Republican senator, Marco Rubio, will face his Democratic challenger, Val Demings, in a debate. The state’s race is worth watching, and not just because it could decide control of the Senate.
 
 Mr Rubio is a Cuban-American who has served in the Senate since 2011. Ms Demings is an African-American congresswoman. Her nomination signals a shift by the Democrats towards more moderate candidates. As a former police chief she can push back against his claims that she is “dangerously radical.” The race also highlights the attention and money pouring into the Sunshine State. Mr Rubio has raised around $40m and Ms Demings around $50m. But Hurricane Ian has complicated their campaigns not least because President Joe Biden praised the clean-up efforts of Ron DeSantis, the Republican governor running for re-election.
@@ -2375,6 +2423,7 @@ For more about the midterms and the race to control Congress, explore our model.
 ![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap308.jpg)
 
 PHOTO: GETTY IMAGES
+
 The British Broadcasting Corporation is a hundred years old on Tuesday. For a century, it has parcelled up triumph and disaster then distributed them to the British and around the world. During the cold war it even had a recording ready for use in a nuclear apocalypse. “This country has been attacked with nuclear weapons,” announces a silken-voiced newsreader on the now-released recording.
 
 In its early days the BBC employed no journalists. “There is no news,” ran one crisp bulletin in 1930. Today it broadcasts in 42 languages to 492m people and its news is trusted worldwide. That contributed to a hugely successful first century for the organisation nicknamed “aunty”. But its second will probably be less so. A fifth of British young people watch no BBC content at all. Arguing that all British households who watch television should pay an annual licence fee of £159 ($180) per year, which funds the BBC, will thus become more difficult. This is a birthday with a less than celebratory feel.
@@ -2386,6 +2435,7 @@ In its early days the BBC employed no journalists. “There is no news,” ran o
 ![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap309.jpg)
 
 PHOTO: AP
+
 A new film tells the story of a racially motivated killing remembered as one of the darkest incidents of segregated America. “Till,” which was released in America on Friday, portrays the horrific murder of Emmett Till, a 14-year-old black boy, in Mississippi in 1955. Till’s two white killers were later acquitted.
 
 Rather than focus solely on the abduction, torture and shooting of Till, the film centres on the victim’s mother, Mamie Till-Mobley, as she frets over his trip from Chicago to segregated Mississippi, learns of his death, endures the trial of his killers and eventually becomes a civil-rights campaigner. Danielle Deadwyler delivers a strong performance as Mamie. She is joined by many well known black actors; Whoopi Goldberg plays her mother.
@@ -2444,6 +2494,7 @@ Johnson & Johnson reported a strong quarterly profit of $4.5bn, buoyed by demand
 ![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap319.jpg)
 
 PHOTO: AP
+
 On Wednesday John Lee will give his first annual policy address as Hong Kong’s leader. Most attention will be on covid policy. Mr Lee has moved away from the mainland’s zero-covid approach faster than many expected. His scope to do so was grimly aided by a wave of the Omicron variant that left thousands dead—but many more with antibodies. Still, restrictions abound. International visitors no longer have to quarantine on arrival, but their access to restaurants, bars, gyms and the like is curtailed. They must still take four PCR tests during their first week.
 
 Mr Lee’s policies satisfy neither health experts nor businesses. Still, with China’s president, Xi Jinping, currently doubling down on zero-covid at the Communist Party congress in Beijing, Mr Lee is unlikely to relax restrictions fully. Instead, expect him to trumpet new infrastructure projects aimed at reviving a comatose economy. Meanwhile the exodus of Hong Kongers and expats fed up with restrictions and increasing political repression continues. Nearly 3% of the territory’s population has left over the past two years.
@@ -2453,6 +2504,7 @@ Mr Lee’s policies satisfy neither health experts nor businesses. Still, with C
 ![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap317.jpg)
 
 PHOTO: GETTY IMAGES
+
 For the first time ever inflation in the euro zone reached double digits in September. It is still largely driven by energy prices. But unfortunately for policymakers inflation is spreading across the economy.
 
 On Wednesday, new statistics from the European Union will give the full picture of the rising inflationary pressures. But an early estimate has given a pretty good idea of the damage. Energy prices rose by a staggering 40% in September, compared with a year earlier. Food prices rose by 12%. These prices are volatile and will (hopefully) fall again. But goods and services prices also increased, by 5.6% and 4.3% respectively, and will be harder to bring down. In fact, goods inflation seems to be accelerating: prices rose at an annualised rate of 39% between August and September. A meeting next week of the European Central Bank will have to digest such depressing numbers, and act accordingly. Expect another chunky rise in interest rates.
@@ -2462,6 +2514,7 @@ On Wednesday, new statistics from the European Union will give the full picture 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap315_0.jpg)
 
 PHOTO: REUTERS
+
 From cars to coke cans, aluminium is one of the most widely used metals. But ubiquity and profitability do not always go hand-in-hand. After seven bumper quarters Alcoa, America’s largest producer, is on Wednesday expected to report a big drop in quarterly operating profits.
 
 Aluminium producers’ profits are shaped by supply and demand. From mid-2020 prices enjoyed a stunning rise, as energy-supply issues led to a fall in production in China, the world’s biggest producer, and later in Europe. At the same time demand rose as locked-down consumers drank more at home, boosting demand for aluminium cans, and governments planned recovery infrastructure projects.
@@ -2475,6 +2528,7 @@ Prices peaked in March, at the highest since 1990, but have since collapsed. Chi
 ![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap323.jpg)
 
 PHOTO: AP
+
 Oregon is one of America’s most progressive states. In 2021 it decriminalised personal drug use. Portland, Oregon’s biggest city, regularly holds protests for racial justice. The state has picked a Democratic president in every election since 1988 and has had a Democratic governor since 1987. Yet this year the gubernatorial race is surprisingly close.
 
 Polls suggest that Christine Drazan, the Republican candidate, has an edge over Tina Kotek, her Democratic opponent. Betsy Johnson, an independent, is trailing but splitting the vote. A hustings on Wednesday night will focus on troubles in Portland.
@@ -2486,6 +2540,7 @@ The city faces an increase in violent crime and homelessness. The homeless popul
 ![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap316.jpg)
 
 PHOTO: GETTY IMAGES
+
 The vicious drop in crypto asset prices that began late last year has ruined firms across the industry. Crypto exchanges, lenders, hedge funds and stablecoins saw billions in value wiped out in the spring. Some went bankrupt.
 
 Yet in every crisis there is also an opportunity. Sam Bankman-Fried, a 30-year-old billionaire widely known as SBF, and FTX, his crypto exchange, have survived the industry’s rout. FTX has even injected capital into struggling peers. In June FTX opened a line of credit with BlockFi, which offers crypto-banking, and in July signed an option to buy it. In September FTX bid $1.4bn to acquire Voyager, a collapsed crypto brokerage (which SBF’s trading firm, Alameda, had previously lent money to).
@@ -2544,6 +2599,7 @@ James Cleverly, Britain’s foreign secretary, said on Wednesday that the govern
 ![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap325.jpeg)
 
 PHOTO: AFP
+
 When the top military minds of America, Japan and South Korea meet on Thursday they will mull a problem that they have failed to solve for thirty years: how to defang North Korea’s ever more menacing nuclear programme. The “hermit kingdom” started the year by testing new missile technology. Over the last month it has engaged in multiple drills designed to show it can use its weapons in combat. American and South Korean spooks expect another nuclear test soon, possibly of the sort of “tactical” weapon that could be used on the battlefield.
 
 So far the response has followed a familiar pattern: shows of military strength, talk of America’s and South Korea’s “ironclad” alliance and threats to annihilate North Korea if it steps out of line. Far from giving pause to Kim Jong Un, North Korea’s dictator, this approach merely gives him more time to develop his weapons. A new strategy may be in order.
@@ -2555,6 +2611,7 @@ So far the response has followed a familiar pattern: shows of military strength,
 ![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap332.jpeg)
 
 PHOTO: PRESS ASSOCIATION
+
 European Union leaders will meet on Thursday to discuss the continent’s energy crisis and the war in Ukraine. On the agenda will be emergency measures proposed by the European Commission in Brussels that would compel the EU’s 27 governments to jointly purchase some natural gas. That would prevent European countries from bidding against each other, and thus driving up prices. With national governments pushing different remedies to the crisis, diplomats are playing down the chance of sweeping actions such as price caps on gas imports.
 
 That will leave more time to discuss the situation in Ukraine. Funds to keep the government in Kyiv ticking over are needed, as is money for future reconstruction. Hawkish states, mainly in central and eastern Europe, are demanding fresh sanctions against Russia in the wake of its drone strikes on Ukrainian cities; the previous package of sanctions was agreed by EU leaders just two weeks ago.
@@ -2566,6 +2623,7 @@ That will leave more time to discuss the situation in Ukraine. Funds to keep the
 ![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap329.jpeg)
 
 PHOTO: GETTY IMAGES
+
 Thursday marks the deadline by which occupying Russian officials told Ukrainian technicians at the Zaporizhia nuclear plant that they had to formally switch their allegiance to Russia. Workers who comply will retain their seniority, vacation days and pensions. Those who refuse risk more than the threat of firing. In the months following Russia’s seizure of Europe’s largest nuclear plant, in south-east Ukraine, in March, dozens of employees sympathetic to Ukraine have been tortured, held for ransom or killed. On Monday two more managers were abducted.
 
 The plant’s pre-invasion workforce has shrunk by more than two-thirds. Many Western observers, including the UN’s nuclear watchdog, fear that additional thinning could lead to a nuclear accident. The Ukrainian state operator, Energoatom, has urged staff to keep working but not switch sides. To complicate the workers’ decision, Ukrainian forces are not far off and advancing well. Ukraine’s government has vowed to prosecute those who collaborate with Russia, though officials have suggested that in this case exceptions could be made.
@@ -2577,6 +2635,7 @@ The plant’s pre-invasion workforce has shrunk by more than two-thirds. Many We
 ![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap335.jpeg)
 
 PHOTO: DAVE SIMONDS
+
 With inflation surging to 83% and the Turkish lira down by nearly 40% against the dollar since the start of the year, Recep Tayyip Erdogan might have considered reversing his unusual policy of lowering interest rates to rein in consumer prices. Not a bit of it. “As long as this brother of yours is in power, the interest rate will continue to fall,” Turkey’s president said earlier this month. Mr Erdogan has already forced the central bank to cut its benchmark rate from 18% to 12% over the past year.
 
 Analysts therefore expect another full percentage point cut at the bank’s monetary-policy committee meeting on Thursday. With Mr Erdogan desperate to sustain economic growth, which reached 7.6% in the three months to June, ahead of presidential and parliamentary elections next year, the benchmark rate may soon reach single digits. Inflation be damned.
@@ -2590,6 +2649,7 @@ Analysts therefore expect another full percentage point cut at the bank’s mone
 ![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap327.jpeg)
 
 PHOTO: EPA
+
 The Turner prize for contemporary art in Britain is easy to mock. Over the past 40 years its offerings have included a dishevelled slept-in bed, a pickled cow and calf, and a painting made of elephant dung.
 
 Yet, as a barometer of what the nation cares about, the Turner prize often succeeds. An exhibition of the four artists shortlisted for the 2022 prize opened at Tate Liverpool this week. The show includes photographs by Ingrid Pollard, documenting how black people have been portrayed on imagery such as pub signs and street names; delicate sculptures by Veronica Ryan of seed pouches, avocado stones and magnolia pods, all of which were transported as part of the Atlantic slave economy; and a drag-act video by Sin Wai Kin of a non-binary pop band. The final prize, announced on December 7th, may well go to a creepy installation by Heather Phillipson full of animal eyes accusing mankind of destroying the planet.
@@ -2644,6 +2704,7 @@ At least 50 people were killed by security forces in Chad during a banned anti-g
 #### Britain awaits a new prime minister
 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap343.jpg)PHOTO: EPA
+
 The merry-go-round of Downing Street turns again. Liz Truss, who resigned on Thursday as Britain’s prime minister, will be remembered as the shortest and arguably least successful holder of that office. After bond markets rejected her “mini-budget”, she fired her chancellor, reneged on her promise of tax cuts and lost her authority.
 
 The Conservative Party will now embark on an expedited leadership contest to be completed in the course of the next week. Tory MPs will whittle down a list of hopefuls—who will need support from 100 colleagues to qualify—before putting two to party members to choose from. Likely candidates include Rishi Sunak, the former chancellor; Penny Mordaunt, the leader of the House of Commons; and Boris Johnson, the scandal-prone former prime minister. The winner will be the party’s fifth prime minister since taking office in 2010, and the third this calendar year. But whoever triumphs will face the same old problems: constrained finances and a nigh-on ungovernable party.
@@ -2653,6 +2714,7 @@ The Conservative Party will now embark on an expedited leadership contest to be 
 #### Steve Bannon faces the music
 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap341.jpg)PHOTO: GETTY IMAGES
+
 On Friday Steve Bannon, Donald Trump’s former consigliere, will be sentenced by a judge in Washington for contempt of Congress. In July he was convicted of two misdemeanours for refusing to appear before a House committee investigating the Capitol riot on January 6th 2021. Prosecutors have asked that he serve six months in prison and pay a $200,000 fine. They cited his “name calling, mimicry and menacing rhetoric” towards the committee members, and his lack of remorse.
 
 The contempt-of-Congress statute is rarely enforced. Just one other person—Peter Navarro, a former adviser to Mr Trump—was indicted for thumbing his nose at the January 6th committee, though several higher-level aides also ignored subpoenas. Justice-department guidelines suggest that senior administration officials and the president should not be forced to testify before Congress, owing to executive privilege. So do not expect contempt charges for Mr Trump if, as is expected, he disregards his own forthcoming subpoena.
@@ -2662,6 +2724,7 @@ The contempt-of-Congress statute is rarely enforced. Just one other person—Pet
 #### An LNG jam at European ports
 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap338.jpg)PHOTO: GETTY IMAGES
+
 As the European Union races to restock gas supplies ahead of the winter, it has increasingly relied on liquefied natural gas ferried by super-chilled tankers, often from America, to replace the stuff piped from Russia. That has helped it fill its storage to more than 90%, already passing its target of 80% for November 1st.
 
 But now a bottleneck is choking off flows. With the continent’s limited number of regasifying terminals now running at full capacity, dozens of tankers are being forced to wait their turn. Many are circling off the coasts of Spain, which accounts for one-third of Europe’s regasification capacity, but may soon start looking for other destinations. To avoid missing the boat, next year Spain will reopen El Musel, an LNG import terminal in the Bay of Biscay that has been idle for a decade. But more bottlenecks will appear upstream: the pipeline linking Iberia to northern Europe will not satiate Germany’s hunger for gas.
@@ -2671,6 +2734,7 @@ But now a bottleneck is choking off flows. With the continent’s limited number
 #### Italy edges closer to its new government
 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap344.jpg)PHOTO: REUTERS
+
 A delegation from the right-wing alliance that won Italy’s general election last month will visit president Sergio Mattarella on Friday, rounding off the consultations that precede the formation of a new government. Usually, each party sends its own delegation. But the uneasy allies want to showcase their unity and readiness to govern in coalition under Giorgia Meloni, who leads the hard-right Brothers of Italy party.
 
 The only fly in the ointment appears to be Silvio Berlusconi, who leads the Forza Italia party. Irate at being thwarted in the share-out of cabinet seats, the former prime minister has wrought havoc. In a recording leaked on Wednesday he embarrassed Ms Meloni by boasting of his closeness to Russia’s president, Vladimir Putin. After Mr Berlusconi’s tantrum Mr Mattarella will doubtless want answers to some hard questions: about whether the right is as united as it claims, and whether Mr Berlusconi’s party should, as reportedly intended, get the foreign-affairs portfolio.
@@ -2680,6 +2744,7 @@ The only fly in the ointment appears to be Silvio Berlusconi, who leads the Forz
 #### The melancholy wit of “The Banshees Of Inisherin”
 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap345.jpg)PHOTO: AP
+
 Martin McDonagh’s last comedy drama, “Three Billboards Outside Ebbing, Missouri”, won the BAFTA for Best Film, among other awards, in 2018. The playwright-turned-filmmaker’s darkly funny follow-up, which is released in cinemas on Friday, “The Banshees Of Inisherin”, is too mysterious and melancholy to earn as many prizes. Yet it is sure to win a cult following.
 
 Mr McDonagh has recast the stars of his debut movie, “In Bruges”, Colin Farrell and Brendan Gleeson. The pair play old drinking buddies who live on a tiny Irish island in 1923. Their friendship comes to an abrupt halt when one of them suddenly announces that he will chop off his own fingers if he ever has to talk to the other again. That succinct, absurdist plot is all that Mr McDonagh needs to make a poetic, sharply scripted and beautifully acted meditation on kindness, depression, art, the Irish Civil War—and the self-destructive stubbornness of men everywhere.
@@ -2758,6 +2823,7 @@ Pfizer is set to nearly quadruple the price of its covid-19 vaccine when the Ame
 ![img](https://pocket-image-cache.com//filters:format(jpg):extract_focal()/https%3A%2F%2Fespresso-prod.s3.amazonaws.com%2Ffiles%2Fpublic%2Fstyles%2Fadaptive_mid%2Fpublic%2Fimages%2F20221022_dap349.jpg%3Fitok%3DInEtcHkw)
 
 PHOTO: GETTY IMAGES
+
 The five-yearly congress of China’s Communist Party closes on Saturday, but not before changes to the party’s charter are unveiled. These may include shortening the official name for the president’s political ideology from “Xi Jinping Thought on Socialism with Chinese Characteristics for a New Era” to the snappier “Xi Jinping Thought”. That may seem trivial, but it evokes “Mao Zedong Thought”—the philosophy of the party’s founder—and would further elevate Mr Xi’s position in party lore.
 
 snappy 简洁的
@@ -2782,6 +2848,7 @@ shambolic 混乱的；没有次序的；乱七八糟的 (British English,informa
 ![img](https://pocket-image-cache.com//filters:format(jpg):extract_focal()/https%3A%2F%2Fespresso-prod.s3.amazonaws.com%2Ffiles%2Fpublic%2Fstyles%2Fadaptive_mid%2Fpublic%2Fimages%2F20221022_dap352.jpg%3Fitok%3DvHy0PqNC)
 
 PHOTO: GETTY IMAGES
+
 
 rugby /ˈrʌɡbi/ 橄榄球运动 (sometimes Rugby) [不可数名词] a game played by two teams of 13 or 15 players, using an oval ball which may be kicked or carried. Teams try to put the ball over the other team's line. 
 
@@ -2816,6 +2883,7 @@ blazer /ˈbleɪzər/ （常带有俱乐部、学校、运动队等的颜色或�
 ![img](https://pocket-image-cache.com//filters:format(jpg):extract_focal()/https%3A%2F%2Fespresso-prod.s3.amazonaws.com%2Ffiles%2Fpublic%2Fstyles%2Fadaptive_mid%2Fpublic%2Fimages%2F20221022_dap351.jpg%3Fitok%3Dyz5FA3zH)
 
 PHOTO: COURTESY OF GUGGENHEIM
+
 Flat, cool and arresting, Alex Katz’s portraits are impossible to confuse with anyone else’s. The 95-year-old developed his vivid painting style—a blend of abstract-expressionism and billboard commercialism—in the late 1950s and continues to use it today. Mr Katz’s works are highly valued within the art world: “Blue Umbrella I”, a painting from 1972, sold for $4.1m in 2019. Still, he is overlooked by the public, in part because his paintings can be hard to classify. The Solomon R. Guggenheim Museum in New York aims to correct this oversight with “Alex Katz: Gathering”, a grand retrospective that opened on Friday.
 
 Mr Katz’s colourful, minimalist portraits may seem simple, yet up close his brushwork is nuanced. The marvels of this show are his more recent and massively immersive landscapes, for which he continues to use a ladder. “I’ve been on fire,” he said recently, clearly tickled by both his productivity and his longevity.
@@ -2827,6 +2895,7 @@ Mr Katz’s colourful, minimalist portraits may seem simple, yet up close his br
 ![img](https://pocket-image-cache.com//filters:format(jpg):extract_focal()/https%3A%2F%2Fespresso-prod.s3.amazonaws.com%2Ffiles%2Fpublic%2Fstyles%2Fadaptive_mid%2Fpublic%2Fimages%2F20221022_dap350.jpg%3Fitok%3DVuxHiFSz)
 
 PHOTO: NETFLIX
+
 In 1860 Clotilda, the last known slave ship to reach America, docked in Alabama. Having arrived decades after the importation of captive Africans to the country had been abolished, the ship was burned and sunk after the 110 people it was carrying had disembarked. Its remains were found in 2019, after decades of mystery. On Friday “Descendant”, a documentary focusing on the ship’s legacy, was released on Netflix.
 
 The film traces the lives of the men, women and children brought to America aboard the Clotilda. When slavery was abolished entirely five years after their voyage, many tried to return to what is now Benin, in west Africa, but did not have the funds to do so. They went on to found Africatown, a relatively successful community in Mobile, Alabama. They, and their descendents, were long threatened with violence if they revealed their history. No longer. “Descendant”—which was introduced at a film festival in Martha’s Vineyard, Massachusetts, by Barack Obama, a former president, and his wife Michelle—deftly explores their stories.
@@ -2838,6 +2907,7 @@ The film traces the lives of the men, women and children brought to America aboa
 ![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap347.jpg)
 
 PHOTO: AP
+
 John Fetterman looks like no other senator. Bald, goateed, tattooed and well over two metres tall, he almost always wears his signature hoodie and shorts in public. He is running for an open Senate seat in Pennsylvania against Mehmet Oz, a Republican television personality and former surgeon. The race may determine control of the Senate in America’s midterms on November 8th. So beyond his striking appearance, who is he?
 
 Born in 1969, Mr Fetterman grew up in a conservative home in southern Pennsylvania. He played American football at university and expected to take over his father’s insurance business. But as he tells it, his friend’s sudden death in a car crash propelled him towards public service. He graduated from Harvard’s Kennedy School of Government, then taught high-school drop-outs in Braddock, a rough suburb of Pittsburgh.
@@ -2951,6 +3021,7 @@ India’s government has not ignored air pollution but struggles to control the 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap362.jpg)
 
 PHOTO: ALAMY
+
 The race to succeed Liz Truss as leader of Britain’s Conservative Party, and thus as prime minister, is on. Rishi Sunak, a former chancellor, has announced his candidacy and had the public backing of 155 Conservative MPs by Sunday afternoon. His only declared rival, Penny Mordaunt, the leader of the House of Commons, had the backing of 25—well short of the 100 MP threshold required, by 2pm on Monday, for entry into a final ballot of Conservative party members.
 
 Boris Johnson, prime minister until September when he was forced out over a string of scandals, withdrew from the contest late on Sunday. His supporters had claimed he had the requisite support. And as the enduring favourite of party members, he might then have made an improbable return to 10 Downing Street. But characteristically of Mr Johnson and his coterie, this appears to have been untrue: fewer than 60 MPs seem to have been behind him. Some will now try to get Ms Mordaunt to the threshold. If she fails, Mr Sunak will probably become Britain’s third prime minister this year.
@@ -2960,6 +3031,7 @@ Boris Johnson, prime minister until September when he was forced out over a stri
 ![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap359.jpg)
 
 PHOTO: GETTY IMAGES
+
 The inner workings of Donald Trump’s real-estate business will be exposed this week when the Trump Organisation faces a criminal trial in New York. Prosecutors allege that the firm dodged taxes by paying its employees off the books. In August Allen Weisselberg, the chief financial officer, pled guilty to 15 counts including tax fraud—his under-the-table compensation included an apartment and grandchildren’s school fees. In exchange for a reduced prison sentence he will testify against the company in the trial, which begins on Monday. If convicted it could owe up to $1.6m in fines and back taxes.
 
 America’s former president is not on trial this time. But he faces separate civil charges of fraudulently inflating the value of his real-estate assets. Federal prosecutors are also probing his efforts to overturn the 2020 presidential election and his mishandling of classified documents. Notoriously litigious as a businessman, Mr Trump may soon find himself on the other side of the dock.
@@ -2979,6 +3051,7 @@ The Tigrayans’ scepticism is warranted. Abiy has yet to demonstrate he is seri
 ![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap355.jpg)
 
 PHOTO: QATAR MUSEUMS
+
 Football will be the focus of attention in Qatar when the World Cup is held there later this year. But some visiting fans may also visit the country’s excellent museums. The Museum of Islamic Art, which opened to huge acclaim in 2008, has been completely redesigned and will soon have additional galleries. Some visitors to Doha might also enjoy an exhibition showcasing plans for another museum, which is due to open by the end of the decade.
 
 “Art Mill Museum 2030”, which opens on Monday, introduces a project to redevelop an industrial flour mill in Doha’s cultural district into a waterfront exhibition space. The exhibition will be held on the site and in its garden. The plan is to remodel the mill’s enormous silos and grain elevators into one of the Gulf’s most exciting venues for showing modern and contemporary art, as well as architecture, design, craft, film and fashion. Qatar’s artistic ambitions are almost as big as its sporting ones.
@@ -3028,6 +3101,7 @@ Yangtze Memory Technologies Co, a Chinese chip company that is a darling of Beij
 #### Germany marshals a recovery for Ukraine
 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap302.jpg)PHOTO: GETTY IMAGES
+
 Dithering over delivering arms to Ukraine has damaged Germany’s international image. But the chancellor, Olaf Scholz, seems to have got with the programme. Keen to show that Germany, currently the president of the G7, is pulling its weight on other fronts, he will co-host an international conference in Berlin on Tuesday on the recovery, reconstruction and modernisation of Ukraine.
 
 Mr Scholz and his fellow host, Ursula von der Leyen, the president of the European Commission, have worked closely with Ukraine’s government. The Ukrainian prime minister, Denys Shmyhal, will attend the summit in person. The idea is to conceive a Marshall Plan for Ukraine—a “generational task” that must start now, according to the summiteers, even though the war grinds on.
@@ -3037,6 +3111,7 @@ Mr Shmyhal demands that frozen Russian assets, worth up to $500bn, be used to fi
 #### A spooky week for Big Tech
 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap306.jpg)PHOTO: ALAMY
+
 Alphabet and Microsoft will kick off a nervous earnings quarter for tech firms when they report their latest results on Tuesday. Tech enjoyed a stellar 2021 as covid forced people to go online to work, shop and play. This year it has fallen back to Earth. Inflation, war and broken supply chains have darkened the economic outlook. A strong dollar has made things harder still for American exporters. Most of Silicon Valley is freezing recruitment and trimming budgets.
 
 Last week Snap spooked markets when it reported wilting demand for digital advertising on Snapchat, its social-media app. Alphabet, Google’s parent company, relies on ads too, though its business has so far proved more resilient. Microsoft has a strong cloud-computing division but must reckon with falling PC sales. Later this week Amazon, Apple and Meta will also announce their earnings. For some anxious investors, it feels as if Halloween is coming early.
@@ -3048,6 +3123,7 @@ Last week Snap spooked markets when it reported wilting demand for digital adver
 ![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap301.jpg)
 
 PHOTO: AP
+
 John Fetterman and Mehmet Oz, the Democratic and Republican nominees for Pennsylvania’s open Senate seat, square off on Tuesday in what is likely to be their only debate. Back when he was trailing badly in the polls, Mr Oz—who is at ease before the cameras after years of television appearances—had been pushing for five debates. But Mr Fetterman agreed to just this one, held well after the start of early voting.
 
 Mr Fetterman has never been a strong debater, but voters will be watching him keenly tonight. He suffered a stroke in May, and although his doctor says he’s “recovering well” and can “work full duty in public office”, he also still shows “symptoms of an auditory-processing disorder”, and will use closed captioning during the debate. Mr Fetterman’s wide polling lead from earlier this autumn has all but vanished: the two candidates are neck-and-neck. And the outcome of this race matters—it could determine control of the Senate.
@@ -3057,6 +3133,7 @@ Mr Fetterman has never been a strong debater, but voters will be watching him ke
 ![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap308.jpg)
 
 PHOTO: GETTY IMAGES
+
 Italy’s new prime minister, Giorgia Meloni, is due to unveil her government’s programme in parliament on Tuesday amid continued grumbling by one of her coalition partners. After weeks of negotiations, Silvio Berlusconi, the leader of Forza Italia, who is on trial for allegedly bribing witnesses, was denied control of the justice ministry. Ms Meloni’s high-handedness has “prompted disappointment” said Giorgio Mulé, a leading figure in Mr Berlusconi’s party.
 
 Ms Meloni’s cabinet, which she named on Saturday, reflects the rigorously conservative concerns of her Brothers of Italy party. Eugenia Maria Roccella, the minister for equal opportunities, for example, will also be responsible for boosting Italy’s birth rate. The prime minister is more conventional with her pro-NATO foreign policy, though it remains to be seen how confrontational her nationalist coalition will be towards the EU. And questions remain as to how radical the government’s social and financial policies will be.
@@ -3066,6 +3143,7 @@ Ms Meloni’s cabinet, which she named on Saturday, reflects the rigorously cons
 ![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap305.jpg)
 
 PHOTO: KEN WORONER/NETFLIX
+
 From “Pan’s Labyrinth” to “The Shape Of Water” (winner of the Oscar for Best Picture in 2018), almost every film made by Guillermo del Toro has featured supernatural monsters. Crawling with them, too, is his eight-part Netflix anthology, which has its premiere on Tuesday. Two standalone tales will be released daily. Each hour-long episode of “Guillermo del Toro’s Cabinet Of Curiosities” is adapted from a short horror story: two of these stories were written by the Mexican film-maker himself and two by H.P. Lovecraft, an American author.
 
 Each episode has a different director and a different setting in 20th-century America. All have lavish production design, and all have slimy, fanged, tentacle-waggling creatures, several of which were co-designed by Mr del Toro. These cheerfully old-fashioned shockers offer ghoulish Halloween entertainment that is both eclectic and archetypal—featuring plenty of gore, creepy soundtracks and, of course, monsters galore.
@@ -3149,6 +3227,7 @@ House-price growth in America decelerated in August at its fastest pace since tr
 ![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap314.jpg)
 
 PHOTO: REUTERS
+
 The Future Investment Initiative, a talkfest for business people, investors and government leaders dubbed “Davos in the desert”, is running until Thursday in Saudi Arabia. With a theme of “Investing in Humanity: Enabling a New Global Order” and session titles like “The Humanoid Economy”, the event promises the same kind of high-sounding gibberish as its Swiss cousin. It primarily serves to add a glossy sheen to the oil-rich kingdom and help its elite network with global bosses.
 
 America has not sent government delegates (they say they didn’t want to, while the conference’s organiser claimed they were not invited). The two countries recently had a public spat over the kingdom’s support of a production cut by the OPEC+ oil cartel, a move that benefits Russia, a fellow member. Still, bosses of American businesses such as JPMorgan Chase and Bridgewater have turned up, eager to cash in on the boom under way in the Gulf. Despite its distasteful record of despotism, the kingdom’s riches continue to prove irresistible.
@@ -3158,6 +3237,7 @@ America has not sent government delegates (they say they didn’t want to, while
 ![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap317.jpg)
 
 PHOTO: GETTY IMAGES
+
 As several countries tighten access to abortions, Thailand is doing the opposite: loosening its once-restrictive laws to be among the most liberal in South-East Asia. It has one of the highest rates of teenage pregnancy among middle-income countries and has long waged a losing battle against back-alley procedures. The WHO estimates that the official number of abortions, around 30,000 every year, is just a tenth of the real figure.
 
 But in 2020 Thailand’s constitutional court ruled that banning abortion violated equal rights for men and women as well as the rights to life and liberty. Last year, as a first step, the government legalised procedures performed during the first trimester of pregnancy. From Thursday women who are no more than 20 weeks into their pregnancies will be able to seek abortions in 110 public hospitals and clinics across the country, after consultation with a doctor.
@@ -3169,6 +3249,7 @@ But in 2020 Thailand’s constitutional court ruled that banning abortion violat
 ![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap322.jpg)
 
 PHOTO: EPA
+
 Rishi Sunak became Britain’s prime minister on Tuesday after an appointment with King Charles III. It is shaping up to be an unflashy premiership shorn of the grand ideological visions of his predecessors. Speaking in Downing Street, Mr Sunak said that his priority would be to restore Britain’s stability in the face of a “profound economic crisis”. He promised to “fix” the “mistakes” of his predecessor, Liz Truss, whose mini-budget sparked a sell-off of Britain’s debt and currency.
 
 His cabinet is stuffed with former ministers, many keeping or returning to their previous jobs, including James Cleverly, the foreign secretary, and Suella Braverman, the home secretary. His office wants those appointments to project unity, experience and continuity. But it also reflects how—after his two predecessors were deposed in quick succession—Mr Sunak would rather not make powerful enemies by shaking things up.
@@ -3178,6 +3259,7 @@ His cabinet is stuffed with former ministers, many keeping or returning to their
 ![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap318.jpg)
 
 PHOTO: GETTY IMAGES
+
 At first, it looked like a reprieve. In April Deutsche Bank reported its highest quarterly profits in almost a decade after years spent fighting legal scandals and dumping its unwanted assets to cut losses. Yet within 48 hours police had raided the bank’s headquarters in Frankfurt in another money-laundering investigation. On Wednesday Germany’s biggest bank is reporting again. Boosted by rising interest rates, it is expected to register profits for a ninth consecutive quarter.
 
 But that has not assuaged investors spooked by continued legal troubles (police returned for another raid in May, and again last week in connection to a continuing tax-fraud case). The bank’s share price fluctuates around a fifth lower than one year ago. It has been a bumpy road in other ways, too: in July the bank ditched its cost-cutting targets, citing the “unforeseen” costs of the war in Ukraine and its litigation expenses. The past quarter has not felt like a new leaf.
@@ -3187,6 +3269,7 @@ But that has not assuaged investors spooked by continued legal troubles (police 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap319.jpg)
 
 PHOTO: GETTY IMAGES
+
 On Sunday climate activists glued themselves to the “Abbey Road” crossing in London, made famous by the Beatles; on Monday four more were arrested for smearing cake on a waxwork of King Charles III at Madame Tussauds. The group, “Just Stop Oil”, is increasingly using cultural targets to protest against climate change.
 
 Their stunts—which also included splattering soup over Van Gogh’s “Sunflowers” at Britain’s National Gallery—have sparked furious debate about whether they engage or alienate the public. Polling published in April found that whereas 58% of respondents supported the group’s demands, including stopping new licences being issued for fossil-fuel projects in Britain, only 18% supported the group itself. Messing with artwork inconveniences the public less directly than its more conventional past activity, such as blocking roads, but also feels more tangential to climate issues. Undeterred, the group has warned to expect them “every day and anywhere”.
@@ -3242,6 +3325,7 @@ Britain’s new government delayed the announcement of its fiscal plan—which w
 ![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap328.jpg)
 
 PHOTO: GETTY IMAGES
+
 Technically, it will look great. Data on Thursday are expected to show that in the third quarter of the year America’s GDP growth accelerated to about 3% on an annualised basis. That will mark a sharp rebound after contractions in both the first and second quarters. The Democrats and Joe Biden will no doubt be grateful for positive headlines about the economy less than two weeks ahead of midterm elections, even if they will probably still face a drubbing at the ballot box.
 
 Viewed in more detail, the economic picture is less reassuring. Arithmetically, strong imports were a drag on GDP at the start of the year. More recently, imports have weakened, reflecting more sluggish domestic demand. Counter-intuitively, that makes GDP growth appear stronger now since fewer American dollars are going abroad. That does not mean that America is in a recession yet. But it does signal that it is losing steam.
@@ -3253,6 +3337,7 @@ Viewed in more detail, the economic picture is less reassuring. Arithmetically, 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap326.jpg)
 
 PHOTO: GETTY IMAGES
+
 The Valdai discussion club began in 2004 as a Russian version of the Davos conference of global bigwigs. Its mission was, mostly, to convince Western elites to invest in Russia. Those days are long gone. When President Vladimir Putin addresses the meeting in Moscow on Thursday, it will be to attack the West and to foretell its downfall.
 
 Last year Mr Putin treated attendees to a wide-ranging three-hour-long discussion in which he lambasted Western liberalism and praised obscure Russian nationalist philosophers. This year’s talk is likely to be similar. The conference’s theme, “A Post-Hegemonic World: Security and Justice for Everyone”, is central to Russian propaganda, which presents Mr Putin’s war in Ukraine as an effort to free the world from Western domination. The audience’s pre-approved questions are unlikely to rattle him. In a version leaked to Ukrainian media, the first asks whether Mr Putin agrees “that the ideology of the Russian state is the ideology of Russian victory”.
@@ -3262,6 +3347,7 @@ Last year Mr Putin treated attendees to a wide-ranging three-hour-long discussio
 ![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap331.jpg)
 
 PHOTO: DAVE SIMONDS
+
 The European Central Bank’s top brass convene in Frankfurt on Thursday to decide how much to raise interest rates. It will be a difficult call: three important economic indicators all point in different directions.
 
 The key number is the euro zone’s inflation rate, which soared to 9.9% in September, far above the bank’s 2% target. That calls for a steep rate rise. But data on economic sentiment suggest a screeching downturn is under way, especially in gas-hungry Germany. That calls for a rate cut.
@@ -3273,6 +3359,7 @@ A final consideration is wage growth. Employers and workers have struck mostly m
 ![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap327.jpg)
 
 PHOTO: GETTY IMAGES
+
 On Thursday Credit Suisse will follow a handful of banks in reporting its third-quarter results. But more attention will be paid to the bank’s strategy to recover after a recent string of risk-management and compliance disasters. It incurred hits ranging from $1.7bn with the collapse of Greensill, a lender, to more than $5bn when Archegos, a hedge fund, went bust last year. This month the bank had to cough up even more painful fines in America (linked to its residential mortgage-backed securities business) and France (to settle a money-laundering case).
 
 Adding to the turmoil, its top management ranks have been in a state of flux. Tidjane Thiam quit in 2020 after the bank admitted to spying on former staff. His successor, Thomas Gottstein, was replaced in August this year with Ulrich Koerner, a restructuring expert. Mr Koerner may well be able to whip the venerable firm back into shape; he will need to convince financial markets of his determination to do so.
@@ -3282,6 +3369,7 @@ Adding to the turmoil, its top management ranks have been in a state of flux. Ti
 ![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap330.jpg)
 
 PHOTO: GETTY IMAGES
+
 The memoir of Benjamin “Bibi” Netanyahu is published in Britain on Thursday, following its release in America and Israel last week. Now the leader of Israel’s opposition, Mr Netanyahu was the country’s longest-serving prime minister until he was ousted in 2021. In “Bibi: My Story” he recounts his rise up the ranks and 15 years in office. Other power-hungry populists will find plenty of tips—these include: play up existential threats to your country, don’t be afraid to spar with America, exploit voters’ greatest fears and bash the elite (even if it doesn’t exist).
 
 But Mr Netanyahu’s motivation for picking up a pen is not altruistic. Instead, he wants to convince the world that Israel must remain strong and unyielding in the face of Iran’s nuclear programme and Palestinians’ demands. And he wants to persuade Israeli voters that he is the only man who can ensure this, and that they must therefore re-elect him prime minister in the election due on November 1st.
@@ -3333,6 +3421,7 @@ Stormont, Northern Ireland’s parliament, has been recalled in an eleventh-hour
 #### Meta’s unhappy anniversary
 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap332.jpg)PHOTO: GETTY IMAGES
+
 One year ago on Friday Mark Zuckerberg changed the name of his company from Facebook to Meta. Under that new banner just about everything has gone wrong. Earlier this year the company reported its first year-on-year drop in quarterly revenue and the first decline in users of Facebook, its social network. Investors hoped it was a blip. But on Wednesday Meta said quarterly revenue had fallen again, by 4%, and predicted it would drop in the next quarter too. In response the company’s share price plunged by nearly a quarter.
 
 But these are mere Earthly problems. Mr Zuckerberg believes his company’s future lies in the metaverse, an online space to work, play and watch ads. Meta has spent tens of billions of dollars building it. But fewer than 200,000 people reportedly use Meta’s flagship metaverse app. One day the metaverse may take off. The question is whether Meta, which has lost more than 70% of its market value this year, will still be around then.
@@ -3344,6 +3433,7 @@ But these are mere Earthly problems. Mr Zuckerberg believes his company’s futu
 ![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap337.jpg)
 
 PHOTO: REUTERS
+
 On Friday Imran Khan begins a protest march from the eastern city of Lahore to Islamabad, the capital. Pakistan’s former prime minister demands that elections, scheduled for late next year, are brought forward. Mr Khan was ousted earlier this year by a vote of no confidence. He is hoping that a show of street power will pile pressure on the government to dissolve parliament. The former cricketer-turned-politician has gathered support by spinning a fantastical tale of an American plot to oust him from office. He recently presented himself as a headline candidate in a clutch of by-elections; he won six of seven seats.
 
 Mr Khan’s march adds to Pakistan’s other political and economic woes. Massive flooding this monsoon season caused an estimated $40bn in damages. The country is battling high inflation and energy shortages, as well as seeking $27bn in debt rescheduling, much of it from China. If the government cracks down on Mr Khan’s march, more political turmoil will follow.
@@ -3353,6 +3443,7 @@ Mr Khan’s march adds to Pakistan’s other political and economic woes. Massiv
 ![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap335.jpg)
 
 PHOTO: GETTY IMAGES
+
 On Friday ExxonMobil releases its results for the third quarter. America’s largest oil firm has already hinted that it probably won’t match the record $17.9bn in profits it posted for the previous quarter—but that it will come close, despite oil prices falling from their dizzying heights after Russia invaded Ukraine. Cheaper crude, a result of Russia’s continued exports and the slowing global economy, combined with lower refinery margins to dent Exxon’s haul. But margins were boosted by sales of pricey natural gas, especially to energy-starved Europe.
 
 Now gas prices have receded but oil prices are up again, boosted by a big cut to the monthly output target of OPEC+, a cartel of producers. Exxon still has worries, such as its clash with America’s energy secretary over caps on fuel exports. Earlier in October the company left Russia empty-handed after President Vladimir Putin expropriated some of its Russian assets. But for the foreseeable future, energy scarcity will keep boosting their bottom line.
@@ -3362,6 +3453,7 @@ Now gas prices have receded but oil prices are up again, boosted by a big cut to
 ![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap334.jpg)
 
 PHOTO: PA
+
 Northern Ireland has had no regional government since February. Both of its two biggest parties can block the other from governing. Sinn Féin, which won its first election in May, wants a united Ireland. The runner-up Democratic Unionist Party wants to keep Northern Ireland British. At midnight on Friday, six months since the last election, their time to re-establish a power-sharing government ran out, triggering a fresh election. It will probably be held on December 15th.
 
 Both parties are expected to consolidate their positions with voters. Whichever wins, their main contention—on the Northern Ireland protocol that created a new Irish Sea border with Britain after Brexit—will remain unresolved. To prevent the region from stagnating in the meantime, Westminster may give more power to civil servants, who in effect ran the country the last time the government collapsed in 2017. Then, it took three years to replace them with politicians. The lengthy backlog of untaken government decisions looks set to grow.
@@ -3371,6 +3463,7 @@ Both parties are expected to consolidate their positions with voters. Whichever 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap336.jpg)
 
 PHOTO: AP
+
 On Friday “Bros”, one of Hollywood’s first gay romantic comedies, is released in Britain. Co-written by its star, Billy Eichner (“Parks and Recreation”), and by its director, Nicholas Stoller (“Forgetting Sarah Marshall”), the film is a sweetly old-fashioned New York rom-com in many respects. Mr Eichner plays a celebrity podcaster who doesn’t want a long-term relationship but might be persuaded by a hunky lawyer (Luke Macfarlane) he meets at a party.
 
 The film is anxious to mark itself apart from heterosexual smash hits, making copious references to Grindr, poppers, threesomes and foursomes. It also takes some satirical swipes at “Brokeback Mountain” and other gay-themed dramas with straight casts: the numerous LGBT characters in “Bros” are all played by LGBT actors. American box-office sales have so far disappointed. Mr Eichner partly blamed homophobia. But the fact is that grown-up, sincere romantic comedies are out of fashion, whatever the sexuality of their leads.
@@ -3442,6 +3535,7 @@ ExxonMobil reported a record profit, of $19.7bn, up by a tenth from the previous
 ![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap340.jpg)
 
 PHOTO: REUTERS
+
 Next month countries gather for the United Nations’ climate summit in Egypt. In preparation, this week several reports assessed their progress in tackling climate change. The conclusions are grim. The UN Environment Programme found that countries’ climate commitments barely made a dent in the 17bn to 20bn tonnes that must be cut from annual emissions by 2030 for any hope of limiting global warming to 1.5°C over pre-industrial temperatures (the primary goal of the Paris Agreement). Even if every national climate goal for 2030 were met, models predict temperatures will rise by 2.4°C by 2100. Existing climate policies (not just promises) equal 2.8°C.
 
 A report from Systems Change Lab, a collection of environmental groups and think-tanks, found that of 40 actions needed to meet 2030 targets—such as changing energy systems and land use—none are on track. There was one bright spot: a report from the International Energy Agency found that war in Ukraine has hastened the world’s transition to renewable energy.
@@ -3453,6 +3547,7 @@ A report from Systems Change Lab, a collection of environmental groups and think
 ![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap342_0.jpg)
 
 PHOTO: REUTERS
+
 America’s former president hits the campaign trail this weekend. Barack Obama will appear at a rally in Detroit alongside Michigan’s governor, Gretchen Whitmer, who is seeking re-election in the midterms in November. In Milwaukee he will stump with Tony Evers, Wisconsin’s Democratic governor, and Mandela Barnes, the party’s nominee for the Senate. On Friday he appeared in Georgia with Stacey Abrams and Raphael Warnock, candidates for governor and the Senate respectively.
 
 Mr Obama’s hectic campaigning spree is rare: in recent years he has devoted himself less to politics and more to pursuits such as making a nature documentary for Netflix. His activity contrasts with that of President Joe Biden, who has not appeared at a campaign rally in months (though he has done more low-key events). Mr Biden evidently fears that his unpopularity—53% of voters disapprove of him—might put off undecided voters. Mr Obama’s appearance, by contrast, might help boost turnout, particularly among black voters.
@@ -3462,6 +3557,7 @@ Mr Obama’s hectic campaigning spree is rare: in recent years he has devoted hi
 ![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap341.jpg)
 
 PHOTO: REUTERS
+
 On Saturday Mexicans will begin celebrating Día de los Muertos, the lively festival of ancestors that runs over several days. Mexico City will host a huge parade of costumed people and papier-mâché figures. Crowds will flock to the ofrenda (altar) in the Zócalo, the capital’s central square, a larger version of the personal ones they set up at home. Graveyards become rammed and rambunctious.
 
 Day of the Dead is rooted in pre-Hispanic cultures. People place food, sugar skulls and marigolds on altars and graves, which they believe will help speed their loved ones’ journey to their final resting place. Outside Mexico the event’s popularity is relatively recent, and is in part for having been featured in “Spectre”, a James Bond instalment, and “Coco”, an animated Disney film. Mexico is a country with far too much experience of death, but this festival is anything but morbid.
@@ -3479,6 +3575,7 @@ The story recounts how, in the spring of 1917, a 17-year-old German soldier, Pau
 ![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap343.jpg)
 
 PHOTO: GETTY IMAGES
+
 It is now all but certain who China’s next prime minister will be. On October 23rd, when Xi Jinping walked onto a podium in Beijing’s Great Hall of the People with members of his reshuffled leadership team, the man directly behind him was Li Qiang, the Communist Party chief of Shanghai. That meant the 63-year-old Mr Li, whose promotion prospects many analysts had written off just a few months ago, had become China’s highest-ranking politician after Mr Xi. He is expected to take over from Li Keqiang (no relation), the 67-year-old current prime minister, when the legislature meets next March.
 
 The younger Mr Li is a remarkable choice. Earlier this year he was widely blamed by Shanghai residents for the chaotic and harsh management of a weeks-long lockdown of the city, aimed at crushing an outbreak of covid-19. Even without the lockdown fiasco, he would have been an unlikely candidate for prime-minister. The post is normally given to people who have served as a deputy PM. Li Qiang has never held a central-government portfolio.
@@ -3577,6 +3674,7 @@ Two car-bombs killed at least 100 people in Mogadishu, Somalia’s capital, said
 ![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap352.jpg)
 
 PHOTO: REUTERS
+
 Italy’s latest GDP figure is due out on Monday. The preliminary estimate is expected to show the economy flatlined at best in the third quarter after a healthy performance in the first half of the year. Parliament’s budgetary committee on October 19th predicted a quarter-on-quarter drop of 0.2%. And that was before Friday’s shocker: a leap in the annual rate of consumer-price inflation in October to a wholly unexpected 12.8% from 9.4% the previous month.
 
 The energy-driven inflation affecting the whole of Europe is among several economic headaches for Giorgia Meloni’s newly installed right-wing government. Ms Meloni is expected to introduce a package of measures to mitigate the impact on households of rising prices. With Italy’s government debt already amounting to 150% of GDP, there is a limit to how much she can spend without unsettling investors. A market crisis is the very last thing her government needs—just ask Liz Truss.
@@ -3586,6 +3684,7 @@ The energy-driven inflation affecting the whole of Europe is among several econo
 ![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap350.jpg)
 
 PHOTO: GETTY IMAGES
+
 Since 1978, America’s Supreme Court has allowed the limited use of racial preferences in university admissions to foster the educational benefits of diversity. In 2003 and 2016, legal challenges to affirmative action fell one vote short in the highest court. But on Monday a pair of cases, involving Harvard University and the University of North Carolina, give the justices another opportunity to nix race-conscious admissions. The court’s six Republican-appointed members should be a receptive audience.
 
 Students for Fair Admissions, the plaintiff in both suits, is the brainchild of Edward Blum, a conservative activist who brought the previous cases, too. SFFA argues that Grutter v Bollinger, the 2003 decision, is “egregiously wrong” and must be overturned. Harvard’s tip for black and Hispanic students is not modest but “mammoth”, the organisation says, and “discriminates against Asian Americans”. Harvard counters that its policies “fully align” with the constitutional requirement of equal protection and reflect “common-sense reality, not stereotype”.
@@ -3595,6 +3694,7 @@ Students for Fair Admissions, the plaintiff in both suits, is the brainchild of 
 ![img](https://cdn.espresso.economist.com/files/public/images/hongkong.png)
 
 PHOTO: AFP
+
 After more than two years largely sealed off from the outside world, and a violent crackdown on democracy, Hong Kong’s reputation has taken a beating. But the government hopes to revive its vulnerable status as Asia’s top commercial hub this week with a high-profile summit of global leaders from the finance industry.
 
 It will be a hard sell. Hong Kong is still physically isolated from mainland China as a result of zero-covid policies, threatening its traditional role as a business gateway to the mainland economy. Wall Street bosses are among the attendees, but some will be notable by their absence. A recent covid-19 diagnosis will keep the head of Citigroup, Jane Fraser, at home. Hong Kong still requires multiple tests for visitors and enforced isolation for those testing positive. Paul Chan, the city’s financial secretary, aims to attend despite having contracted covid on a trip to Saudi Arabia. Zero-covid, it seems, still means lots of covid.
@@ -3604,6 +3704,7 @@ It will be a hard sell. Hong Kong is still physically isolated from mainland Chi
 ![img](https://cdn.espresso.economist.com/files/public/images/graindeal.jpg)
 
 PHOTO: AFP
+
 Not a single ship packed with grain and other foodstuffs was able to leave Ukraine on Sunday, after Russia backed out of a deal guaranteeing safe passage for commercial vessels through the Black Sea. Russia announced it was suspending its participation in the UN-brokered agreement “for an indefinite period” on Saturday, in response to a Ukrainian attack on its Black Sea fleet earlier that day.
 
 Since early August, when the deal came into effect, Ukraine has been able to export more than 9m tonnes of grain, saving its farmers from bankruptcy. The agreement has also eased a global food shortage, brought down prices and prevented some 100m people from falling into extreme poverty, according to the UN. Its collapse would undo many of those gains. It may also expose Ukraine’s ports, whose waters have been de-mined to allow ships to pass, to new Russian attacks.
@@ -3615,6 +3716,7 @@ Since early August, when the deal came into effect, Ukraine has been able to exp
 ![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap351.jpg)
 
 PHOTO: 2021 ARTISTS RIGHTS AGENCY, NEW
+
 Meret Oppenheim was 22 and chatting with Pablo Picasso and Dora Maar in a Paris café when she dreamt up the artwork that would make her famous: a fur-covered cup, saucer and spoon that she called “Object”. Hailed as quintessentially surrealist, this playfully erotic and unnerving sculpture caused a sensation for decades. Yet Oppenheim herself, who died in 1985, has largely escaped notice.
 
 “Meret Oppenheim: My Exhibition”, a grand survey of more than 180 works at New York’s Museum of Modern Art, should fix this error of omission. The show arrives at a time when curators everywhere have become fascinated again by the Freudian dreamscapes of surrealism, and keen on highlighting the often overlooked work of women. A few years into her star turn as a surrealist, Oppenheim broke free from a movement that often dismissed women as muses, only to continue innovating in semi-obscurity. “Nobody will give you freedom,” she observed. “You have to take it.”
@@ -3672,6 +3774,7 @@ Shanghai Disney abruptly locked its gates to contain a covid-19 outbreak, trappi
 ![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap302.jpg)
 
 PHOTO: DPA
+
 Luiz Inácio Lula da Silva will lead Brazil again after winning the country’s fiercest contest since it returned to democratic elections in 1989. Mr Lula, of the leftist Workers’ Party, will return as president—he previously served two terms between 2003 and 2010—after narrowly beating the right-wing populist incumbent, Jair Bolsonaro, in Sunday’s election. Lula won 50.9% to Mr Bolsanaro’s 49.1%, a margin of just over 2m votes.
 
 After a campaign marked by violence and fake news, Lula must pacify a fractured country. “I will govern for 215m Brazilians, not just for those who voted for me”, he said in his victory speech. But Mr Bolsonaro, who has repeatedly cast doubt on the electoral system, may not accept defeat. Depending on his reaction bolsonaristas may resort to street violence. Lula hopes to boost spending to alleviate poverty. Mr Bolsonaro’s allies in congress, though, may block his agenda. Lula will find governing much harder this time around.
@@ -3681,6 +3784,7 @@ After a campaign marked by violence and fake news, Lula must pacify a fractured 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap301.jpg)
 
 PHOTO: AP
+
 On Tuesday Israel is holding its fifth parliamentary election in less than four years. Yet again, the campaigns centre around whether Binyamin Netanyahu, the former prime minister who was forced out amid a myriad of scandals in 2021 and is now leader of the opposition, should return to office. Israelis are split on the issue. Right-wing and religious parties supporting Mr Netanyahu are forecast to win 60 seats in the 120-member Knesset. The rest will go to centrist and left-wing parties opposed to his return.
 
 Under Israel’s proportional-representation system, no single party has ever won an outright majority in the Knesset. A stable government is far from assured. If Mr Netanyahu’s bloc wins a majority he will be beholden to far-right ultra-nationalist parties. If Mr Netanyahu fails, the incumbent prime minister, Yair Lapid, will be stuck with a coalition of squabbling parties which last time collapsed after only a year. Yet another trip to the ballot box seems likely.
@@ -3690,6 +3794,7 @@ Under Israel’s proportional-representation system, no single party has ever wo
 ![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap305.jpg)
 
 PHOTO: GETTY IMAGES
+
 On Tuesday Uber will publish its quarterly results. Despite being the largest ride-sharing company in the world, it is expected to report yet again that it spent more money than it made. And its problems are not unique. After a multi-year bull run, American technology stocks are suffering a sharp correction. The tech-heavy NASDAQ Composite has fallen by almost 30% in the past 12 months. Crunchbase, a data provider, estimates that tech firms have shed more than 45,000 jobs this year.
 
 Some of those born after the dotcom crash of 2001 seem particularly vulnerable. They include “movers” (like Uber), “streamers” (like Netflix), and “creepers” (like Snap, which make their money by serving targeted ads), which have all seen their share performances decline. These businesses, though diverse, have made similar mistakes, including an overestimation of the value of users and an underestimation of the risk of copy-cats. Despite what tech-enthusiasts once believed, the harsh laws of competitive capitalism still apply online.
@@ -3699,6 +3804,7 @@ Some of those born after the dotcom crash of 2001 seem particularly vulnerable. 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap303_2.jpg)
 
 PHOTO: GETTY IMAGES
+
 “Sorry, something went wrong,” reads an apology on the homepage of the Arab League’s duff website. Many of its 22 member-states would agree. The group’s first summit for three years opens on Tuesday in Algiers, Algeria’s capital, but the leaders of most of the Gulf states, Morocco and Syria (which was suspended in 2011) are staying away. Crown Prince Muhammad bin Salman, Saudi Arabia’s de facto leader, cried off, citing an earache. And Lebanon has no leader to send after its president stepped down on October 30th.
 
 Unlike other regional bodies, the League has no common market or currency, and no peace-keeping force. It also has little consensus. Arab leaders disagree on Iran, Libya, disputed Western Sahara and relations with Israel and Palestine. To find some common ground the League’s chairman, Ahmed Aboul Gheit, has suggested a focus on food security and other issues caused by Russia’s war in Ukraine. But even that leads to rancour. While energy producers celebrate booming economies caused by high prices, consumer countries are crashing into recession. More beleaguered than League, perhaps.
@@ -3710,6 +3816,7 @@ Unlike other regional bodies, the League has no common market or currency, and n
 ![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap304.jpg)
 
 PHOTO: ALAMY
+
 The life of George Balanchine, an influential ballet choreographer, was a journey across the political and cultural landscape of the 20th century. Born in St Petersburg in 1904 Balanchine came of age during an era of revolution. He fled west, first to Berlin, then Paris and eventually America. In 1934 he helped to set up the School of American Ballet and in 1948 he co-founded the New York City Ballet. “Mr B”, a new biography by Jennifer Homans, is a portrait of a fascinating man and of the art to which he dedicated his career.
 
 Ms Homans explores both the technical details of Balanchine’s craft and the messy details of his personal life. For Balanchine, dance was inextricably bound up with love and sex. He was a difficult boss: generous, but petty and tyrannical. Ms Homans does not shy away from the darker side of his character, but is willing to forgive him for the sake of his genius.
@@ -3760,6 +3867,7 @@ Uber’s share price leapt by more than a tenth after the ride-sharing firm said
 ![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap311.jpg)
 
 PHOTO: GETTY IMAGES
+
 America’s Federal Reserve is widely expected to raise interest rates by three-quarters of a percentage point on Wednesday, its fourth straight increase of that magnitude. If it does so, the Fed will have lifted short-term rates from a floor of 0% in March to 3.75%, its sharpest tightening since the early 1980s, as it tries to rein in inflation, which is above an annual rate of 8%.
 
 Given that markets have priced in the rate increase, the focus will be on what Jerome Powell, the Fed’s chairman, says in a subsequent news conference. Look for hints about whether he is ready to slow the pace of tightening, perhaps teeing the Fed up for a half-point rate increase at its next meeting in December. But he will also no doubt explain that future decisions depend on data, leaving the Fed wriggle room to deliver yet another jumbo rate rise if inflation remains uncomfortably high.
@@ -3771,6 +3879,7 @@ Given that markets have priced in the rate increase, the focus will be on what J
 ![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap312.jpg)
 
 PHOTO: ALAMY
+
 This week delegates, lobbyists and bag-carriers begin trickling into Sharm El-Sheikh, in Egypt, for COP27, the United Nations’ annual climate summit. The event, which officially kicks off on Sunday, is being advertised as “Africa’s COP” with a focus on the continent.
 
 As delegates haggle over how to reduce global emissions, they should remember how little energy Africa uses. An average person in sub-Saharan Africa (excluding South Africa) uses about 180kWh a year, less than the average American fridge.
@@ -3782,6 +3891,7 @@ If Africa is to grow richer, its energy use must increase. Renewable energy is e
 ![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap308.jpg)
 
 PHOTO: AP
+
 Opened in 1879, Jhulto Pul “hanging bridge” was the biggest tourist attraction in Morbi, a Gujarati town. Now it is the site of India’s latest man-made disaster. On October 30th, four days after the pedestrian suspension bridge reopened following maintenance work, its cables snapped, plunging several hundred people into the Machchhu river. On Wednesday Gujarat will mark a day of mourning for the victims.
 
 Oreva, the company which operates the bridge, has blamed people for swaying the walkway. But its employees are among the nine people arrested so far over the collapse. Ahead of state elections in December, opposition parties have alleged corruption over the way Oreva, chiefly a clock-maker, was awarded the bridge contract by the municipality of Morbi and the government of Gujarat, which are controlled by the Bharatiya Janata Party. Narendra Modi, India’s BJP prime minister, has ordered a “detailed and extensive” inquiry. The Supreme Court will open an investigation on November 14th. Indians will not expect much. Post-mortems following similar tragedies have done little to improve governance or shoddy engineering.
@@ -3791,6 +3901,7 @@ Oreva, the company which operates the bridge, has blamed people for swaying the 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap309.jpg)
 
 PHOTO: REUTERS
+
 Officials from the European Parliament are in Greece on Wednesday to probe whether the ruling party used spyware to illegally snoop on politicians and a journalist. The government of Kyriakos Mitsotakis, the prime minister, has denied that it bought the Israeli-made Predator software (which is similar to the Pegasus spyware used by governments including Mexico and Saudi Arabia). But the reluctance of officials to meet with investigators has fuelled worries that his New Democracy party was involved in an attempt last year to hack the phone of Nikos Androulakis, the leader of Pasok-Kinal, an opposition party.
 
 A Greek parliamentary inquiry ended abruptly last month after government MPs blocked requests by opposition ones to call important witnesses. They included managers at Intellexa, an Israeli-controlled company based in Athens which sold Predator, and Mr Misotakis’s nephew, the then-chief of the cabinet office. The European committee may struggle to untangle such a web. But if it finds evidence that the government was behind the eavesdropping, it could blow up Mr Mitsotakis’s chances of winning a general election next spring.
@@ -3800,6 +3911,7 @@ A Greek parliamentary inquiry ended abruptly last month after government MPs blo
 ![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap310_1.jpg)
 
 PHOTO: ALAMY
+
 In a recent self-promotional video Rishi Sunak, Britain’s prime minister, appears to be modelling himself on the clean-cut, shirt-sleeved occupant of 10 Downing Street played by Hugh Grant in “Love Actually”, a romantic comedy. The slickly produced clip has been mocked online, but there are not many other fictional role models for Mr Sunak to choose from.
 
 Whereas cinema’s American presidents are often noble and brave, British prime ministers on screen are usually self-serving schemers. Francis Urquhart (Ian Richardson) in “House Of Cards” is a Machiavellian murderer; Adam Lang (Pierce Brosnan) in “The Ghost Writer” is a CIA stooge; Vivienne Rook (Emma Thompson) in “Years And Years” is a fascist; and in “Doctor Who” Harold Saxon (John Simm) is the Doctor’s arch-enemy, the Master. A more benign example is Jim Hacker (Paul Eddington) in “Yes, Prime Minister”; he was merely an amiable bungler. British screenwriters rarely make their prime ministers heroes. Given the scandals and upheavals of recent months, that is not likely to change.
@@ -3851,6 +3963,7 @@ Maersk warned that container demand was weakening as concerns about recession un
 ![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap318.jpg)
 
 PHOTO: AFP
+
 On Thursday Germany’s chancellor will visit Beijing. China is Germany’s largest trading partner and Olaf Scholz is the first Western leader to visit the Chinese capital since the start of the covid-19 pandemic. The symbolism is huge, but not as straightforward as it seems.
 
 After he was elected in 2021 Mr Scholz committed in his coalition agreement to recalibrating Germany’s close economic ties with China by better defending German interests and monitoring China’s human-rights record. Russia’s invasion of Ukraine, and the resulting energy crisis, highlighted the dangers of economic dependence on an autocracy. Yet China matters much more than Russia to German business.
@@ -3874,6 +3987,7 @@ Asked in October about running for president, Mr Trump said he will “probably 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap317.jpg)
 
 PHOTO: GETTY IMAGES
+
 Investors expect Britain’s monetary policymakers to lift the official interest rate by 0.75 percentage points on Thursday, to 3%. That would be the sharpest increase in over three decades, and will tug mortgage rates higher and general demand lower. To justify the move, policymakers will point to the risk that uncomfortably high annual inflation in September of 10.1% becomes entrenched.
 
 The Bank of England’s choice will not be easy. One prime minister, Liz Truss, spooked markets with promises of tax cuts. Now a new one, Rishi Sunak, is planning the opposite.Details of those plans are due on November 17th, casting a fog over the fiscal outlook. It may take longer to find out what help households will get with energy bills beyond April.
@@ -3885,6 +3999,7 @@ It is unclear yet whether inflation associated with higher energy prices will pr
 ![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap319.jpg)
 
 PHOTO: GETTY IMAGES
+
 Brazil’s state-run oil giant, Petrobras, will publish its earnings for the third quarter on Thursday. Expect robust cashflow and payouts to investors. Nevertheless, the current quarter will be the last for Caio Mário Paes de Andrade, chief executive since June.
 
 Brazil’s largest company has been a political instrument since its foundation in the 1950s. Jair Bolsonaro, who lost the presidential election on October 30th, fired three Petrobras bosses during his four-year tenure. Luiz Inácio Lula da Silva, who will take office in January, will name his new team soon, including a boss for Petrobras.
@@ -3896,6 +4011,7 @@ Lula’s relationship with Petrobras will be closely watched for repeats of mist
 ![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap320.jpg)
 
 PHOTO: © DAVID HOCKNEY
+
 On his first day at the Royal College of Art, in London, in 1959, David Hockney drew a skeleton. His draughtsmanship so impressed another student—the American painter R.B. Kitaj—that he offered Mr Hockney £5 (then $14) for it.
 
 Some sixty years on, Mr Hockney’s talent is undimmed, though he now uses an iPad instead of pencil and paper. The artist who made California’s swimming pools famous (one of his pool pictures sold for $90m in 2018, making it the most expensive painting ever sold at auction by a living artist) now lives in France, where he mostly paints nature.
@@ -3949,6 +4065,7 @@ Fact of the day:
 ![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap327.jpg)
 
 PHOTO: GETTY IMAGES
+
 After a sizzling run, the labour market in America may finally be cooling down. Figures due out on Friday are expected to show that the economy added about 190,000 jobs in October, the fewest since the end of 2020. That would be the third straight monthly decline in job creation, a trend that may intensify as higher interest rates weigh on business activity. On November 2nd the Federal Reserve delivered yet another jumbo rate rise.
 
 President Joe Biden and the Democrats would prefer to see a stronger jobs report ahead of the midterm elections on November 8th. But for investors and the Fed itself, signs of weakness are welcome. In recent months wages have risen quickly as companies struggle to fill vacancies, adding upward pressure to inflation. The challenge for the Fed is to bring about a softening in labour demand without provoking a sharp rise in unemployment. So far it has managed that. But economic headwinds are mounting.
@@ -3958,6 +4075,7 @@ President Joe Biden and the Democrats would prefer to see a stronger jobs report
 ![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap329.jpg)
 
 PHOTO: AP
+
 On Friday Russia celebrates Unity Day, a national holiday commemorating Moscow’s liberation from Polish invaders in 1612. President Vladimir Putin traditionally lays flowers at a statue in the Red Square lionising the rebellion’s commanders. That symbolism also chimes with his rhetoric about Ukraine, where he casts the war as an unavoidable, existential battle against the West.
 
 In truth, to invade Ukraine was a choice made by Mr Putin. On Monday he claimed that the “partial mobilisation” of troops to Ukraine was complete. But recruitment could restart at his whim. Some Russians should be more concerned than others. Studies suggest that the conscription drive disproportionately affected poorer parts of the country. Many recruits also come from places with large ethnic-minority populations like Dagestan, a Muslim-majority republic in the south and Buryatia, an ethnic-Mongolian region in the east. Although Mr Putin preaches national unity, not all Russians are treated equally.
@@ -3969,6 +4087,7 @@ In truth, to invade Ukraine was a choice made by Mr Putin. On Monday he claimed 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap331.jpg)
 
 PHOTO: AP
+
 On Friday in Bahrain Pope Francis will meet a group of Islamic leaders known as the Muslim Council of Elders. His four-day trip, the first papal visit to the country, revolves around the “Bahrain Forum for Dialogue” through which the island host hopes to promote interfaith co-operation, as well as exhibit its own religious tolerance.
 
 Unlike some of its neighbours, Bahrain has long been fairly open to non-Muslim worship. Its 80,000 Catholics, most of them migrant workers, have several churches; there are Hindu temples and a synagogue.
@@ -3980,6 +4099,7 @@ The state is less tolerant with its own citizens. An oppressed Shia majority com
 ![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap326.jpg)
 
 PHOTO: AP
+
 Britain’s King Charles will host a hastily organised bash at Buckingham Palace on Friday. The reception is a warm-up for COP27, the United Nations’ climate summit, which begins in Sharm El-Sheik, in Egypt, on Sunday.
 
 Alongside foreign dignitaries, such as America’s climate envoy, John Kerry, will be British politicians. That could be awkward. In her few weeks as prime minister, Liz Truss advised the new king, a stalwart climate campaigner, not to attend COP. Rishi Sunak, her successor, held this line. He also declined to go to Egypt himself, only to change his mind after widespread criticism. This is embarrassing for Mr Sunak. It exposes divergent priorities not only with the king but also with Boris Johnson, another predecessor, who gladly accepted an invitation to COP, having hosted the previous summit. And it raises questions about whether Mr Sunak will keep Mr Johnson’s ambitious climate promises. His appearance at COP27 will not alter the conversation. But his handling of the affair shows a poor understanding of public mood.
@@ -3989,6 +4109,7 @@ Alongside foreign dignitaries, such as America’s climate envoy, John Kerry, wi
 ![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap324_0.jpg)
 
 PHOTO: GETTY IMAGES
+
 With his big glasses, moustache and accordion, Alfred Yankovic often heard that he was “weird”. Thus in 1979, when he recorded his first hit single (“My Bologna”, a parody of The Knack’s “My Sharona”), he used the nickname “Weird Al”. He has since sold over 12m albums and won five Grammy Awards including, in 2015, the best comedy album for “Mandatory Fun”.
 
 Despite competition on social media, Mr Yankovic is still the king of musical comedy. He recently played a sold-out show at Carnegie Hall in New York. On Friday a biopic, “Weird: The Al Yankovic Story”, written by Mr Yankovic and starring Daniel Radcliffe, is released on Roku, a streaming service. Fittingly the film has twisted the facts of his life to spoof the Hollywood genre. Yet Mr Yankovic insists there are “nuggets of truth”, such as when his character says the key to happiness is to “be as weird as you want to be.”
@@ -4056,6 +4177,7 @@ Stocks across Asia rose amid reports that China might relax its stringent covid-
 ![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap338.jpg)
 
 PHOTO: GETTY IMAGES
+
 On Saturday, three days before the midterms, presidents current and past—Joe Biden, Donald Trump and Barack Obama—will descend on Pennsylvania for a final bout of campaigning. Democrats are keen to pick up the state’s open Senate seat, which would allow them to keep control of Congress’s upper chamber even if they were to lose another close seat, like Nevada. A Republican victory could well hand control of the Senate to the Republican Party.
 
 The Democratic candidate, John Fetterman, who suffered a stroke in May, held a steady polling lead this summer. But Mehmet Oz, the Trump-endorsed Republican contender, has since advanced in the polls. Our forecast puts him within a whisker of overtaking Mr Fetterman.
@@ -4067,6 +4189,7 @@ Whether the race has narrowed because establishment Republicans have “come hom
 ![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap349.jpg)
 
 PHOTO: GETTY IMAGES
+
 On Saturday campaigning for Malaysia’s general election, scheduled for November 19th, officially starts. But lawmakers have not stopped scheming since voters last had their say four years ago. In the interim three prime ministers from three coalition governments watched their backs until their necks were sore. Just about every party has tasted power, and is thus, in the eyes of voters, partly responsible for Malaysia’s mess. Prices are increasing, the currency is weakening and wages are stagnating.
 
 The coalition of the historic ruling party, UMNO, has the best shot at forming a government. That is despite the jailing of its previous prime minister, Najib Razak, for his role in the 1MDB affair that saw billions of dollars vanish from state coffers. The two other blocs despise each other. UMNO might fancy its chances in a divided field. But none of this means that the politicking will be over two weeks from now.
@@ -4076,6 +4199,7 @@ The coalition of the historic ruling party, UMNO, has the best shot at forming a
 ![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap335.jpg)
 
 PHOTO: EPA
+
 The Hong Kong Rugby Sevens, the city’s biggest sporting event, is back this weekend—just. The coronavirus pandemic meant the 2020 and 2021 editions were cancelled, while the 2022 event was postponed from its usual slot in April.
 
 The government’s original hair-brained scheme for the spectacularly boozy event—that fans could drink but not eat in the stadium to limit covid transmission—was thankfully binned. Still, capacity at the Hong Kong Stadium will be reduced, masks will be compulsory and the women’s event will not take place. The organisers expect most of the crowd to be locals, given the relatively recent relaxation of the rules governing foreign arrivals. Nevertheless the organiser, the Hong Kong Rugby Union, reports that ticket sales to locals are above average. On the field, Fiji remain the team to beat, having won seven of the past eight tournaments, as well as gold medals in the men’s event at the 2016 and 2020 Olympics.
@@ -4085,6 +4209,7 @@ The government’s original hair-brained scheme for the spectacularly boozy even
 ![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap336.jpg)
 
 PHOTO: GETTY IMAGES
+
 Visitors to Egypt’s Great Pyramid of Giza this month will see modern art next to ancient treasures. The second edition of “Forever is Now”, a public art exhibition, places contemporary sculptures and interactive installations alongside monuments such as the Great Sphinx. Meta, parent company of Instagram, has released augmented-reality filters to guide people around the sites.
 
 Art D’Égypte, the organiser, sought participation from 12 artists from around the world. Their brief was to think about immortality; some grapple with sustainability and environmental disruption. One of the works is an installation from Litre of Light, an organisation that helps poor communities construct solar lights. Meanwhile the question of how to meet the world’s growing energy needs without further endangering the future will be debated fiercely 500km to the south-east in Sharm el-Sheikh, where the UN’s annual climate summit begins on Sunday.
@@ -4094,6 +4219,7 @@ Art D’Égypte, the organiser, sought participation from 12 artists from around
 ![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap339.jpg)
 
 PHOTO: GETTY IMAGES
+
 The first time she was “cancelled really hard”, as she puts it, Kari Lake did some soul searching. In 2019 a hot mic had caught Ms Lake—then a veteran television newsreader in Phoenix, Arizona—crudely dismissing concerns about her presence on Parler, a right-wing social network. “Fuck them,” she said of her detractors. “They’re 20-year-old dopes.”
 
 After the tape leaked, the dopes called for Ms Lake to be fired. She spent a week off the air, but her unease only grew. She turned to God. She started comparing the Bible she kept on one side of her desk with the news scripts she kept on the other. Eventually, she quit broadcasting altogether, saying she was through with “having to read news that I felt wasn’t fully truthful”. Shortly thereafter she announced her candidacy as a Republican for governor of Arizona, in a video produced by her husband, a videographer with a penchant for soft-focus backgrounds.
@@ -4189,6 +4315,7 @@ Researchers in Britain conducted the first transfusion of lab-grown blood to hum
 ![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap347.jpeg)
 
 PHOTO: REUTERS
+
 Every two years Americans go to the polls to decide which congressmen and senators to hire and fire. But election day, on Tuesday, has consequences far beyond Capitol Hill. Voters also pick representatives for their state legislatures, where most policy in America is made. They elect mayors, governors and judges—and they vote on scores of local ballot measures. This year that means deciding on abortion and voting rights, alongside many other issues. The midterms are an enormous democratic exercise.
 
 But American democracy is being questioned by some Republicans. A big theme of this year’s midterms is the rise of election deniers, who argue that the 2020 presidential election was fraudulent, and that Donald Trump is the rightful president. Many of these candidates are running for local positions, such as secretary of state, that oversee elections. Their victories in important swing states like Arizona and Michigan could affect how future elections are run. The 2024 presidential campaign is already looming.
@@ -4198,6 +4325,7 @@ But American democracy is being questioned by some Republicans. A big theme of t
 ![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap350.jpeg)
 
 PHOTO: PA
+
 On Monday the World Trade Organisation publishes its annual report on global trade, the vast majority of which is conducted through the system the WTO oversees. It comes at a fraught moment. Global goods trade bounced back strongly after a deep downturn in 2020, despite many supply-chain problems. In 2021 trade reached its highest level as a share of world GDP since 2014 and has risen again in 2022, according to the WTO’s current estimates.
 
 But troubles loom. Over the coming year growth is expected to slow sharply; America, China and Europe are all at risk of recessions. Protectionism is increasing. Amid rising geopolitical tensions, China and the West are trying to reduce their interdependency for critical resources and technologies. America’s forays into industrial policy—including the “Buy America” rules written into a new climate law—have irked its trade partners in Europe and Asia. In time the post-pandemic rebound in trade may seem more a last hurrah than a new dawn.
@@ -4207,6 +4335,7 @@ But troubles loom. Over the coming year growth is expected to slow sharply; Amer
 ![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap351_recrop.jpeg)
 
 PHOTO: EPA
+
 In the coming days, Ukraine will receive two National Advanced Surface to Air Missile Systems developed by Kongsberg, a Norwegian aerospace company, and Raytheon, an American one. In October Ukraine received an advanced IRIS-T air-defence system from Germany, which has promised them three more. Slovakia provided a battery of missiles months ago.
 
 Such weapons are helping Ukraine protect itself. On October 10th, nearly half of the missiles and drones launched by Russia dodged Ukrainian defences; now the country claims to be shooting down over 80% of the missiles and drones that come its way. The danger is still immense. Over the past month, Russian attacks have destroyed or damaged up to 40% of the country’s energy infrastructure, triggering widespread power cuts. (There are plans to evacuate Kyiv, the capital, in the event of a prolonged blackout.) America wants to increase the speed with which it hands over six additional NASAM systems. For Ukrainians, these deliveries cannot come fast enough.
@@ -4216,6 +4345,7 @@ Such weapons are helping Ukraine protect itself. On October 10th, nearly half of
 ![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap348.jpeg)
 
 PHOTO: GETTY IMAGES
+
 BioNTech, the German biotechnology company that partnered with Pfizer to produce a widely used covid-19 vaccination, releases its third-quarter results on Monday. They will be watched closely by those wanting to scry jab-makers’ futures as the pandemic wanes. Pfizer, an American firm, beat analysts’ expectations last week, reporting $22.6bn in third-quarter sales. “We believe our covid-19 franchises will remain multibillion-dollar revenue generators for the foreseeable future,” said Albert Bourla, Pfizer’s chief executive. Yet Moderna, another American vaccine manufacturer, fared poorly, citing complex manufacturing issues and writing off $333m of expired inventory.
 
 Moderna, Pfizer and BioNTech have increased the prices of their covid-19 products to offset anticipated slowdowns and are under pressure to diversify their drug portfolios for a post-pandemic era. BioNTech is also hoping to drive sales with its new covid booster jab, which has already proved more effective against the Omicron variant than the original version it developed with Pfizer. But as the coronavirus slips down governments’ agendas, even that might not bolster its bottom line for long.
@@ -4225,6 +4355,7 @@ Moderna, Pfizer and BioNTech have increased the prices of their covid-19 product
 ![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap352.jpeg)
 
 PHOTO: COURTESY OF NETFLIX
+
 Artistic angst pervades “Bardo: False Chronicle of a Handful of Truths”, which was released in a limited number of American cinemas by Netflix on Friday. (It will air on the streaming service in December.) The film follows a journalist-cum-filmmaker through a midlife crisis, expressed through a fugue of memories and visions. The inciting event is an awards ceremony—familiar territory for Alejandro González Iñárritu, the film’s Mexican director who has won Academy Awards for “The Revenant” and “Birdman”, among others.
 
 Silverio Gama, the film’s fictional documentarian, finds that success does not soothe his discontent. Instead, he is haunted by ghosts from Mexico’s conquistador past and the drug wars of its present and wonders about his stature among his clubby colleagues. The film is an anxious examination of how an artist and his work are perceived, and on the pressure to seem sufficiently responsive to the concerns of the times. It joins a recent spate of films examining the challenges of creativity, notably “Blonde” and “Elvis”, two biopics about Marilyn Monroe and Elvis Presley respectively.
@@ -4278,6 +4409,7 @@ China reported more than 5,600 new covid-19 cases on Monday, its highest caseloa
 ![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap303.jpg)
 
 PHOTO: GETTY IMAGES
+
 On Tuesday Americans go to the polls—or, to be more precise, finish going to the polls. More than 40m voters have cast early ballots in the midterms, pointing to the continuation of a trend of record-high turnout in American elections. After see-sawing for months, most pundits now predict a good night for Republicans. They are expected to win a majority in the House and are favoured to do so in the Senate.
 
 Though Democrats are buoyed by support for abortion rights, they are burdened by inflation, crime, an unpopular president and a historical pattern that the party holding the White House loses ground in midterms. Even if the Democrats do better than expected, many Republican candidates have refused to commit to honouring the results should they lose, following the example of Donald Trump in 2020. A political cliché—that “the only poll that matters” is on election day—may be put to the test.
@@ -4287,6 +4419,7 @@ Though Democrats are buoyed by support for abortion rights, they are burdened by
 ![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap305.jpg)
 
 PHOTO: GETTY IMAGES
+
 Subrahmanyam Jaishankar, India’s foreign minister, will meet Sergey Lavrov, his Russian counterpart, in Moscow on Tuesday. The atmosphere will be cordial. Trade between two countries has soared and is set to exceed $30bn next year, two years before the target set for it to do so. India is now one of the main buyers of Russian oil, which is under sanctions from the West. It is also one of the best customers for Russian weapons.
 
 In September, after months of silence, Narendra Modi, India’s prime minister, finally commented on President Vladimir Putin’s invasion of Ukraine. “This is not an era of war”, he said, adding that “democracy, diplomacy and dialogue” were needed instead. But despite claiming to be “deeply disturbed”, India has repeatedly refused to vote on any United Nations’ resolution condemning the war. In return Mr Putin has praised Mr Modi as a “great patriot” and lauded his ability “to pursue independent foreign policy”.
@@ -4296,6 +4429,7 @@ In September, after months of silence, Narendra Modi, India’s prime minister, 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap306.jpg)
 
 PHOTO: GETTY IMAGES
+
 AMC, the world’s largest cinema chain, will report its quarterly results on Tuesday. In 2020, lockdowns shutting cinemas tanked the company’s revenues by nearly 80%, bringing it close to bankruptcy. In 2021, its fortunes shifted with the meme-stock frenzy, as retail investors stampeded into the market to squeeze professional short-sellers targeting beloved companies. Between January and June 2021, its share price rose from just above $2 to $61, a rally egged on by Adam Aron, AMC’s iconoclastic boss, on social media.
 
 The hype is now fizzling out. Shares are trading below $6. Revenue has been recovering, but analysts expect it to remain below 2019 levels this year and next as cinema attendance remains depressed (viewers can now often watch new films at home). AMC’s problems will be further exacerbated by a lack of blockbuster releases between now and Christmas. Investors spooked by the collapse of Cineworld, a rival company, in September are now eyeing AMC with more concern.
@@ -4305,6 +4439,7 @@ The hype is now fizzling out. Shares are trading below $6. Revenue has been reco
 ![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap310_0.jpg)
 
 PHOTO: AP
+
 On Tuesday Gaston Browne, the prime minister of Antigua and Barbuda, will address COP27, the United Nations annual climate summit currently taking place in Sharm el-Sheik, Egypt. Speaking on behalf of the Alliance of Small Island States, a group of countries that has the most to lose from rising temperatures and sea levels, Mr Browne is expected to focus on their dire need for more cash to cope.
 
 Arguments over money will be at the heart of this year’s conference. Rich countries have long promised to provide poor ones with $100bn in climate finance a year by 2020—a goal which has still not been met. Poor countries have increasingly been calling for “loss and damage” funding to help them offset the damage they have already incurred as a result of climate change. For the first time the topic is on the formal agenda, after heated arguments about it delayed the start of the summit by hours. But large economies like America hate the idea, and any serious resolution remains unlikely.
@@ -4316,6 +4451,7 @@ Arguments over money will be at the heart of this year’s conference. Rich coun
 ![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap307.jpg)
 
 PHOTO: ALAMY
+
 Fifty years ago on Tuesday HBO broadcast its first programme—a hockey match. The television network’s early offering combined live sport with uncensored films. As a paid-for cable channel, it was not subject to the same government restrictions on content as broadcast television, nor did it have to please advertisers.
 
 Capitalising on this freedom, HBO started developing original dramas; creations often revelled in violence, sex and swearing. “It’s not TV. It’s HBO” proclaimed a famous slogan first used in 1996. The network soon became a television trend-setter. Hit gangster-drama “The Sopranos” created a zest for antiheroes, something subsequently copied by AMC (the network, not the cinema company) with shows like “Mad Men” and “Breaking Bad”. “Game of Thrones”—HBO’s most successful drama, which scooped up 59 Emmy awards during its eight-season run—fueled appetite for fantasy. With high production values and demanding narratives, the network changed viewers’ expectations of television and paved the way for companies like Netflix. Those streamers are now HBO’s main competition.
@@ -4367,6 +4503,7 @@ Disney said its streaming service added 12.1m subscribers in the three months th
 ![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap313.jpg)
 
 PHOTO: AP
+
 Some Americans who rose early to vote on election day caught the morning’s lunar eclipse. The sky’s reddish hue was an auspicious sign for the Republicans, who are likely to win a majority in the House of Representatives and could take the Senate, too. “I’m anxious,” confessed a Democrat voting in Brooklyn. “I think it’s going to be a rout.”
 
 The Economist’s statistical model suggests that a Republican ripple is more likely than a red wave. But the GOP will need to recover only one of the two branches of Congress to be able to stall President Joe Biden’s legislative agenda.
@@ -4378,6 +4515,7 @@ That is not an unusual outcome in midterm elections, where voters typically puni
 ![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap319.jpg)
 
 PHOTO: GETTY IMAGES
+
 On Wednesday Dhananjaya Y. Chandrachud will be appointed as the 50th chief justice of the Indian Supreme Court. As one of the court’s more liberal judges Mr Chandrachud has been instrumental in its most progressive decisions in recent years, including judgments that enshrined privacy as a fundamental right and decriminalised homosexuality.
 
 Now, as “master of the roster”, Mr Chandrachud will decide when cases are heard and which of the court’s 28 judges will hear them. With nearly 70,000 cases pending, and just two years before he must retire at 65, he will have plenty to do. But his bigger challenge will be managing India’s increasingly muscular government.
@@ -4389,6 +4527,7 @@ Many Indians hope Mr Chandrachud can make the court a more effective counterweig
 ![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap320.jpg)
 
 PHOTO: AP
+
 Financial markets are rife with speculation about when the Chinese government might relax its strict zero-covid policy. One social-media message highlighting the rumors has been dubbed the “trillion-dollar tweet”, after it helped inspire a big rally in Chinese shares.
 
 But even as investors contemplate a loosening of fetters in the future, China’s economy must endure them in the present. Official figures released on November 15th will probably show that retail sales shrank in nominal terms in October, compared with a year earlier. The growth of industrial production probably slowed, too. And figures due out on Wednesday are likely to reveal that consumer-price inflation softened.
@@ -4402,6 +4541,7 @@ This domestic weakness is all the more troubling because foreign demand for Chin
 ![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap324.jpg)
 
 PHOTO: AFP
+
 Emmanuel Macron, France’s president, will be winched from a helicopter on to an attack submarine near the port of Toulon on Wednesday, after making a speech unveiling a national strategic review. The review, drafted after Russia’s invasion of Ukraine, will underline continuity in France’s approach to defence, including its ambition to strengthen “European strategic autonomy” in ways that are complementary to NATO, and its hopes of acting as what Mr Macron calls a “balancing power”.
 
 The speech will include some novelties nonetheless. Mr Macron will announce the official end of Operation Barkhane, a French counterterrorism effort in the north African Sahel. He will add “influence” to a list of the country’s national strategic functions, with the aim of combatting disinformation and asserting France’s interests. The annual budget for the armed forces in 2023 will increase by 7.4% to €43.9bn ($44.2bn). And Mr Macron will stress the need for increased national “resilience”—from robust armed forces to industrial preparedness—to face the risk of further high-intensity warfare in Europe.
@@ -4411,6 +4551,7 @@ The speech will include some novelties nonetheless. Mr Macron will announce the 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap316.jpg)
 
 PHOTO: NETFLIX
+
 The fifth season of “The Crown”, a television series about the British royal family, is released on Netflix on Wednesday. It begins in the early 1990s. John Major (Jonny Lee Miller) is prime minister and Queen Elizabeth II (Imelda Staunton), in her 60s, stands accused by the press of trying to hoard power. Public support for Prince Charles (Dominic West) and his wife, Diana (Elizabeth Debicki), is high, and the heir is jostling for a bigger role.
 
 Now that he has finally ascended to the throne, the timing of the series for King Charles is awkward. Britons optimistic about their new king could have their minds changed by its portrayal of his scheming and the breakdown of his marriage. The programme prompted criticism even before its release. Sir John (as he is now) suggested it was disrespectful to air it so soon after the queen’s death in September, and dismissed some depictions as “malicious nonsense”. In response Netflix issued a disclaimer reminding audiences that the show is a “fictional dramatisation”.
@@ -4462,6 +4603,7 @@ The International Monetary Fund provisionally agreed to a $4.5bn programme to su
 ![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap334.jpg)
 
 PHOTO: GETTY IMAGES
+
 As votes in America’s midterms continue to be counted, the Republicans look likely to narrowly win the House of Representatives. Control of the Senate may not be known for weeks, as the race in Georgia goes to a December run-off. The results were closer than expected. But a few portents stand out.
 
 Republicans may have to temper their anti-abortion rhetoric. Voters chose to protect reproductive rights in a handful of states. Same for their denial of the 2020 election: many proponents of the “Big Lie” lost statewide races.
@@ -4473,6 +4615,7 @@ In Washington, a Republican-controlled House will do little legislating and hold
 ![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap339.jpg)
 
 PHOTO: GETTY IMAGES
+
 Corporate America likes gridlock. So although the Republican Party did worse than expected in the midterms, assuming they take the House, business executives will not be moping. Divided government means no new corporation taxes or windfall levies from the Biden administration. It also means less public spending. That may help limit the rise in inflation—which data out on Thursday will probably show remained high, at about 8% annually in October. Thankfully for some industries, big spending bills on infrastructure, semiconductors and climate have already become law, meaning there is still plenty of money to feast upon.
 
 America Inc will not be spared from heavy-handed government, though. The GOP will lack the strength in Congress to thwart the White House’s efforts to push regulation to the left. And while Washington, DC, is in legislative paralysis, state governments will flex their muscles. These are increasingly ideological strongholds, and growing bossier towards business. Red states attack corporate “wokeness” while blue states demand environmental purity. There are big chasms for the private sector to straddle.
@@ -4482,6 +4625,7 @@ America Inc will not be spared from heavy-handed government, though. The GOP wil
 ![img](https://cdn.espresso.economist.com/files/public/images/ESPaw101122.jpg)
 
 PHOTO: GETTY IMAGES
+
 On Thursday many commuters in London will once again struggle to get to work. Staff from London Underground, which runs the Tube network, plan to strike over pay and conditions. And around Britain, more industrial action is coming.
 
 On Wednesday the Royal College of Nursing announced that its 300,000 members had voted for the union’s first ever national strike. Staff at 150 universities will walk out at the end of November. Teachers, midwives and ambulance workers are all mulling similar measures. Some rail strikes were suspended this week, but if unions’ negotiations with bosses fail, they could come back.
@@ -4541,6 +4685,7 @@ Elon Musk told Twitter employees at a meeting on Thursday that the social-media 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap343.jpeg)
 
 PHOTO: GETTY IMAGES
+
 “Singles’ Day”, an informal holiday in China that falls on Friday, began as a celebration of those unlucky in love (the date, 11/11, symbolises four single people). Then, over a decade ago Alibaba, an e-commerce giant, helped turn the day into a shopping event. Today most online retailers in China offer sales during the festival and millions of Chinese people splurge on e-commerce websites. But this year the world’s biggest online shopping day will probably be smaller than in 2021.
 
 Harsh covid restrictions in China have dampened consumer sentiment. For the first time in 14 years the value of Alibaba’s sales on Singles’ Day may fall, from a record 540bn yuan (then $85bn) last year to 532bn yuan, according to estimates from Bloomberg. Sporadic lockdowns across the country may even disrupt the logistics networks needed to deliver the goods. Most countries have learned to live with covid. China is doing anything but.
@@ -4552,6 +4697,7 @@ Harsh covid restrictions in China have dampened consumer sentiment. For the firs
 ![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap345.jpeg)
 
 PHOTO: AP
+
 According to the Intergovernmental Panel on Climate Change, 2.9trn tonnes of carbon dioxide is the most that can accumulate in the atmosphere for there to be a reasonable chance of avoiding temperature rises beyond 1.5°C above pre-industrial levels. The “budget” for 2°C is 3.7trn tonnes. By 2019 around 2.4trn tonnes had already been released.
 
 On Friday the Global Carbon Project, a scientific consortium, will release its annual report on how much the world has left to “spend”. Its calculation is likely to be depressing. Staying within the budget for 1.5°C was only just plausible when the goal was agreed in Paris in 2015. Emissions have continued growing since. But a reminder of just how little is left in the bank should galvanise the negotiators gathered in Egypt for COP27, the UN’s climate summit. They must move to slash emissions now, rather than promise to cut them in the future. And they must start thinking seriously about what to do when the budget for 1.5°C runs out.
@@ -4561,6 +4707,7 @@ On Friday the Global Carbon Project, a scientific consortium, will release its a
 ![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap348.jpeg)
 
 PHOTO: GETTY IMAGES
+
 Many Ukrainians mistrust France’s president, Emmanuel Macron, because until recently he has persisted in talking to Russia’s president, Vladimir Putin. But in a speech at the UN in September, Mr Macron explained that his desire for dialogue was part of a search for a new multilateral global order. On Friday he will expound on that vision at the Paris Peace Forum, an annual talking shop in the French capital.
 
 There will, inevitably, be much discussion about how to bring the war in Ukraine to an end. But the forum—slogan: “Riding out the multi-crisis”—will place the conflict alongside other problems such as climate change, food security, covid-19 and internet governance. This is reflected in its list of speakers and panellists, which includes big names from Africa, such as Umaro Sissoco Embaló, the president of Guinea-Bissau, and Asia, such as Kishore Mahbubani, a Singaporean diplomat. Mr Putin also likes to talk about a new multipolar world. The version that will be presented in Paris seems more benign.
@@ -4570,6 +4717,7 @@ There will, inevitably, be much discussion about how to bring the war in Ukraine
 ![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap344.jpeg)
 
 PHOTO: ALAMY
+
 Nominations close today for one of Latin America’s top jobs. The Inter-American Development Bank lends about $14bn a year in the region, and advises governments on projects and reforms. In 2020 Donald Trump’s administration defied a convention that the bank’s president should be Latin American and cajoled enough votes to install Mauricio Claver-Carone, an official from America’s National Security Council. Mr Claver-Carone promised improvements, but alienated many shareholders. In September the board sacked him for having an affair with his chief-of-staff, whose salary he had raised (he denies the allegations).
 
 This time Latin America’s governments have put forward strong local candidates. Brazil and Mexico have proposed their central bankers (Ilan Goldfajn and Gerardo Esquivel, respectively). Chile’s candidate is Nicolás Eyzaguirre, a former finance minister. Sergio Massa, Argentina’s economy minister, is keen, though he would struggle to leave his current post given what he calls his country’s “critical” economic situation. Much horse-trading may lie ahead before the board chooses the new president on November 20th.
@@ -4579,6 +4727,7 @@ This time Latin America’s governments have put forward strong local candidates
 ![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap346.jpeg)
 
 PHOTO: ©2022 JP PRODUCTION
+
 In October a fire engulfed Evin, Iran’s most notorious prison. The blaze threatened the lives of thousands of inmates, including one of the country’s most prominent directors. Jafar Panahi—who in 2010 was accused of “propaganda against the system” and forbidden from making films or leaving Iran—is one of many film-makers the regime has trapped through house arrests, travel bans or imprisonment. He continued to create and made the internationally acclaimed “Taxi” (2015) and “3 Faces” (2018). In July Mr Panahi was sentenced to six years’ behind bars.
 
 His latest film, “No Bears”, shot in secret before his arrest and released in British cinemas on Friday, draws on his own trials to produce a deft (and surprisingly funny) meta-narrative. Mr Panahi plays himself in this film-about-a-film, which is set either side of Iran’s border with Turkey. By blurring the line between fact and fiction, “No Bears” offers a moving portrait of what it is like to live, and make art, in the face of repression.
@@ -4648,6 +4797,8 @@ Acquis communautaire, the body of all EU laws, treaties and standards that candi
 ![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap361.jpg)
 
 PHOTO: AP
+
+
 After months of moving at a glacial pace, the front lines of the war in Ukraine are now shifting at breakneck speed. Ukrainian forces are rushing forward to fill the apparent vacuum left by Russia’s army on the west bank of the Dnieper river. Russia had announced on Wednesday that it would retreat from the area to save its forces from destruction.
 
 On Friday Ukrainian troops arrived in the centre of Kherson, liberating it after eight months of occupation. They were greeted by cheering locals. The area is thought to have been heavily mined and booby-trapped, so it may be a while before it is fully in Ukraine’s hands. Even so, the seeming speed of Russia’s retreat has taken observers by surprise: some expected it would take days, if not weeks. The Kremlin is trying to insist that the move is a temporary farewell rather than a permanent goodbye. Ukraine’s next target may be Zaporizhia province to the east—part of Russia’s land bridge to Crimea.
@@ -4659,6 +4810,7 @@ On Friday Ukrainian troops arrived in the centre of Kherson, liberating it after
 ![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap353.jpg)
 
 PHOTO: DPA
+
 The ten-country Association of South-East Asian Nations (ASEAN) is meeting in Phnom Penh, Cambodia’s capital, until Sunday. This is its first in-person summit since the pandemic. This year’s theme is “Addressing Challenges Together”. The idea is laudable but other-worldly: ASEAN’s challenges are mostly insurmountable. The club has proved incapable of influencing the ruthless junta in Myanmar, an ASEAN member. Nor does it seem able to do much about the growing rivalry in the region between America and China.
 
 Still, it counts as a small ASEAN win that President Joe Biden will attend its key forum, the East Asia Summit, on Saturday, before heading to Bali in Indonesia for the G20 (and a meeting with Xi Jinping, his Chinese counterpart). America will be made a “comprehensive strategic partner” of ASEAN, a distinction granted to China a year ago. This will help ASEAN maintain its mantra of “centrality”, staying at least somewhat relevant to the superpowers duking it out.
@@ -4670,6 +4822,7 @@ Still, it counts as a small ASEAN win that President Joe Biden will attend its k
 ![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap351.jpg)
 
 PHOTO: GETTY IMAGES
+
 Tennis aficionados have been awaiting a generational change for years, only to find that young players are unable to dislodge the veteran trio of Roger Federer, Rafael Nadal and Novak Djokovic. But the baton may well pass this year. Mr Federer retired in September. Mr Nadal and Mr Djokovic this year won their now customary French Open and Wimbledon titles, but the challengers are coming.
 
 There is already a new world number one, Carlos Alcaraz, a 19-year-old Spaniard who was majestic in winning the US Open in September. Twelve months ago Mr Alcaraz won the ATP’s Next Generation event, a short tournament open to the highest-ranked players aged 21 and under. The final of the 2022 event takes place on Saturday. Mr Alcaraz and fellow rising stars Holger Rune and Jannik Sinner are taking a breather, but finalists Brandom Nakashima and Jiri Lehecka look solid bets to become future top-ten players.
@@ -4679,6 +4832,7 @@ There is already a new world number one, Carlos Alcaraz, a 19-year-old Spaniard 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap355.jpg)
 
 PHOTO: REUTERS
+
 M+, a contemporary-art museum in Hong Kong, celebrates its first anniversary with a huge retrospective opening on Saturday. “Yayoi Kusama: 1945 to Now” features more than 200 works by the Japanese sculptor and installation artist drawn from museums and private collections in America, Asia and Europe. It explores questions of life and death, and considers how Ms Kusama, now 93, became a cultural icon to fans a quarter her age.
 
 With her pieces regularly fetching more than $1m at auction, “the princess of polka dots” is Japan’s most successful living artist. She created mirrored “Infinity Rooms”, which draw huge crowds wherever they appear. Famous for her spotted paintings, strawberry-red bob and, as of late, a polka-dot wheelchair, she checked into a psychiatric institution in Tokyo in 1977 and has lived there ever since. With her quirkiness and mass appeal, Ms Kusama, says the chief curator of M+, “is the ultimate outsider and the ultimate insider”.
@@ -4690,6 +4844,7 @@ With her pieces regularly fetching more than $1m at auction, “the princess of 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap356.jpg)
 
 PHOTO: GETTY IMAGES
+
 In 2011 Alaa Abd el-Fattah turned 30 in a Cairo jail. He spent his 40th birthday behind bars, too. In fact, the human-rights activist has marked many of life’s milestones from inside a cell: his son’s birth, his father’s death. Again in custody, he is Egypt’s most high-profile political prisoner—and a source of international embarrassment to its thuggish government.
 
 Egypt had hoped to use COP27, the UN climate conference taking place in Sharm el-Sheikh, to polish its image. But Mr Abd el-Fattah, who recently escalated a months-long hunger strike by refusing water, is making that impossible. America’s president, Joe Biden, raised Mr Abd el-Fattah’s case with his Egyptian counterpart on Friday. Many other leaders and luminaries have called for his release.
@@ -4795,6 +4950,7 @@ Janet Yellen, America’s treasury secretary, indicated she would quiz the head 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap364.jpg)
 
 PHOTO: REUTERS/AP
+
 President Joe Biden and his Chinese counterpart, Xi Jinping, will try to stop a downward spiral in relations when they meet in Bali on Monday. It will be their first face-to-face encounter since Mr Biden became president in January 2021.
 
 Mr Biden’s approach to China has been unceasingly tough. He has curbed its access to advanced computing technology with a sweeping set of export controls, and repeatedly pledged to defend Taiwan, the self-governing island that China seeks to unify with the mainland.
@@ -4804,6 +4960,7 @@ White House officials talk of “finding a floor” in the relationship. They ar
 #### Challenges for India’s central bank
 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap366.jpg)PHOTO: GETTY IMAGES
+
 These are busy times for the Reserve Bank of India. As the rupee has depreciated against the dollar, reaching a record low in October, the central bank has intervened to stem the slide, burning through about $112bn of foreign-exchange reserves. It has also launched a pilot for a digital rupee, a central-bank digital currency.
 
 The RBI’s biggest task, however, remains tackling inflation. Data for October, due on Monday, are likely to reveal an annual inflation rate of about 6.7%. That would be an improvement over the 7.4% recorded in September, but still above the target range of 2-6%.
@@ -4817,6 +4974,7 @@ Rising prices have been driven by soaring food costs, which account for nearly h
 ![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap368.jpg)
 
 PHOTO: GETTY IMAGES
+
 It has been a terrible year for crypto. By early November tightening financial conditions had halved the cryptosphere’s total market capitalisation. The latest blow may prove even worse.
 
 On Friday, FTX, a cryptocurrency exchange run by Sam Bankman-Fried, and Alameda Research, his trading firm, filed for bankruptcy. Evidence suggests FTX “lent” $10bn in customer funds to Alameda to prop it up. Regulators in both America and the Bahamas are investigating FTX. Whether customers get their money back has yet to be seen.
@@ -4828,6 +4986,7 @@ The crash will have lasting reverberations. FTX was deeply entangled with the re
 ![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap365.jpg)
 
 PHOTO: EYEVINE
+
 On Monday morning tired delegates will shuffle back to a giant conference centre in Sharm el-Sheikh to begin the second week of COP27, the United Nations’ annual climate conference. World leaders making grand promises have left Egypt. It is now up to countries’ negotiating teams to hash out what they are prepared to do to tackle climate change.
 
 Much has been made this year of poor countries’ desires for “loss and damage” funding to compensate for the impacts of rising temperatures. That is being formally debated for the first time, but resistance from rich countries makes it highly unlikely that a relevant mechanism will be established.
@@ -4839,6 +4998,7 @@ The most substantive climate commitment made during COP27 will probably not be m
 ![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap369.jpg)
 
 PHOTO: AP
+
 John Dutton sees enemies everywhere—and they are coming for his land. This is the premise of “Yellowstone”, which returned to Paramount on Sunday. In four previous seasons Dutton, played by a leathery-looking Kevin Costner, has defended his Montana ranch from the government, hedge funds, militias, conservationists and his own children. “Horses and cattle may be how the West was won,” Mr Costner growls, “but death and taxes is how we’re gonna lose it.”
 
 Some of the Duttons’ defence is done with assault rifles. But the family deploys ruthless realpolitik on par with “Succession” or “House of Cards”. This fifth season will see Dutton become governor of Montana. The show explores the state’s real politics too, such as the growing pains of its towns’ expanding into wilderness. “Yellowstone” is so popular that Taylor Sheridan, its creator, is planning two historical prequels, “1883” and “1923”, and a Texas spinoff. Giddyup.
@@ -4890,6 +5050,7 @@ There was still no certainty about which way America’s House of Representative
 ![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap307.jpg)
 
 PHOTO: GETTY IMAGES
+
 Its Indonesian host, President Joko Widodo, calls this G20 summit, which begins on Tuesday, the “most difficult” yet. Motivated by domestic issues, Jokowi (as he is known) has rarely cared for the global stage. But dialogue is his new mantra.
 
 Jokowi tried hard to get Vladimir Putin, Russia’s president, and Volodymyr Zelensky, the president of Ukraine, to join him at the luxury hotel in Bali. Instead both are staying away. But Western leaders may yet boycott a photoshoot if Sergei Lavrov, Russia’s foreign minister, insists on joining. (Reports on Monday that he was unwell were dismissed by the Kremlin as “fake news”.)
@@ -4901,6 +5062,7 @@ Elsewhere, little progress is expected around issues of global governance. And d
 ![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap308_1.jpg)
 
 PHOTO: GETTY IMAGES
+
 On Tuesday the world reaches a milestone. The global population, according to UN projections, will reach 8bn. Twelve years have passed since the world passed the 7bn milestone, and 6bn was passed 12 years before that.
 
 The rate of growth has fallen. This year the population is forecast to have risen by just 0.8%, the slowest rate since the 1950s and a third of the peak in 1963. Women are choosing to have fewer children and between now and 2050, the UN thinks, 61 countries will see their populations fall by at least 1%.
@@ -4914,6 +5076,7 @@ The global population is like a train: slam the brakes on and it stops, but only
 ![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap311.jpg)
 
 PHOTO: AP
+
 “I will very, very, very probably do it again,” said Donald Trump this month at a rally in Sioux City, Iowa. On Tuesday Mr Trump will make his intention to run for president in 2024 official. At least, very, very, very probably.
 
 America’s former president may be motivated by more than politics. Returning to the White House could protect him from some of the legal cases that are mounting against him. Originally he wanted to announce his bid on the eve of the midterms, but Republican leaders talked him down.Given the underwhelming performance of Trump-endorsed candidates, advisers have reportedly encouraged him to delay again.
@@ -4925,6 +5088,7 @@ Mr Trump may see an advantage in entering the field ahead of Ron DeSantis, the g
 ![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap309.jpg)
 
 PHOTO: EPA
+
 On Tuesday the 120 politicians elected on November 1st as members of Israel’s parliament will meet for the first time in Jerusalem. For now Binyamin Netanyahu, a former prime minister, is still the leader of the opposition.
 
 Mr Netanyahu has been endorsed by a majority of the Knesset’s incoming members. On Sunday he received a mandate from Israel’s president, Isaac Herzog, to form a new government. But his route back to the prime minister’s office is not simple. First he must sign coalition agreements with the assortment of far-right and religious parties who comprise his majority. They have a long list of demands, including legislation that would weaken the Supreme Court and funding for Jewish schools. Hardliners also want to control important ministries including defence, public security, education and finance. Many Israelis would balk at that. Having fought so hard to win a majority, Mr Netanyahu may struggle to control it.
@@ -4934,6 +5098,7 @@ Mr Netanyahu has been endorsed by a majority of the Knesset’s incoming members
 ![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap310.jpg)
 
 PHOTO: GETTY IMAGES
+
 On Tuesday Walmart is due to report its latest quarterly results. The American supermarket giant spooked investors earlier this year with a series of profit warnings as rising fuel and food prices led consumers to cut back spending on other items. That forced Walmart to sell excess stock at a discount, crimping its margins. Markets sensed a bad omen for the wider economy.
 
 Since then the firm has staged a robust recovery. Its share price is back where it was in January, despite the falling stockmarket. Inflation in America is coming down, easing pressure on customers’ wallets, but remains high enough that wealthier shoppers are still turning to Walmart for bargains. The Beast of Bentonville is also toughening up with suppliers and pushing back on price rises. A good quarter for Walmart, in other words, does not necessarily mean a good quarter for everyone else.
@@ -4985,6 +5150,7 @@ Alaa Abd el-Fattah, Egypt’s most high-profile political prisoner, ended the hu
 ![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap317.jpg)
 
 PHOTO: ALAMY
+
 Declining economic growth has finally crossed a pain threshold for China’s leaders. For over two and a half years policymakers have been cracking down on the spread of covid-19 and runaway property-sector debt, with dire effects. Now they have announced some big changes.
 
 Quarantine times for inbound travellers and close contacts of those testing positive for covid have been reduced. And bank loans to property developers due to be repaid within the next six months can now be extended. The plans, in theory, will get people spending more money and developers building more homes. But big questions remain.
@@ -4998,6 +5164,7 @@ Loosened covid restrictions could lead to widespread outbreaks. In cities such a
 ![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap319.jpg)
 
 PHOTO: GETTY IMAGES
+
 Russia’s president stayed away from the G20 summit, yet haunts the gathering in Bali. His war in Ukraine has aggravated the many problems, from inflation to the food crisis, the group is grappling with. It also makes reaching agreements harder.
 
 There will probably be no family photo because many Western leaders refuse to be pictured next to Mr Putin’s stand-in, Sergei Lavrov, Russia’s foreign minister. As with other recent G20 events, there may be no final communiqué, since Russia objects to Western efforts to have leaders denounce the invasion and its repercussions. A draft text declaring that “most member countries strongly condemned” the war, while acknowledging differences in “national positions”, is under negotiation.
@@ -5009,6 +5176,7 @@ Many countries feel they are paying for a conflict that does not concern them. �
 ![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap320.jpg)
 
 PHOTO: GETTY IMAGES
+
 When America’s Supreme Court overhauled the right to abortion, it also raised the spectre of curtailing other liberties. In agreeing with the decision, a conservative justice, Clarence Thomas, wrote that the court “should reconsider” rulings protecting same-sex marriage and access to contraception, too. On Wednesday Congress is expected to pass a law codifying same-sex and interracial marriage—both of which are legal because of Supreme Court rulings rather than federal legislation.
 
 The Respect for Marriage Act has been kicking around for a decade, but was revived in July. It would repeal the Defense of Marriage Act, passed by a Republican-controlled Congress in 1996, which allowed states to ban gay marriage, but was later defanged by two Supreme Court decisions.
@@ -5020,6 +5188,7 @@ Few Senate Republicans publicly support the bill. But Democrats say they have en
 ![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap316.jpg)
 
 PHOTO: GETTY IMAGES
+
 On Wednesday NASA, America’s space agency, will attempt, once again, to launch its Space Launch System rocket. The uncrewed SLS was originally scheduled to fly in 2016. The rocket presently standing on the pad was assembled in 2021, but its launch has been repeatedly delayed, twice because of problems with its engines.
 
 More recently the rocket was left out during Hurricane Nicole on November 10th, though NASA’s engineers reckon no significant damage was done. But even a successful launch is unlikely to quiet critics. Built using recycled parts of the Space Shuttle, and as much a job-creation programme as anything else, the SLS has cost $23bn to develop. Estimates for a single uncrewed launch touch $2bn (at least). It has competition, too. SpaceX, a private firm, is building a similar rocket called Starship, and is aiming for launch costs of just 1% of that. In theory, as part of NASA’s Artemis programme, the SLS will return American astronauts to the Moon in 2025. Almost no one thinks that deadline will be met.
@@ -5029,6 +5198,7 @@ More recently the rocket was left out during Hurricane Nicole on November 10th, 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap314.jpg)
 
 PHOTO: GETTY IMAGES
+
 The football Diego Maradona punched into the goal, in the 1986 World Cup quarter-final match between Argentina and England, goes on sale in London on Wednesday. Maradona later said the “hand of God” had intervened. A few minutes later the Argentine scored what became known as the “goal of the century”—arguably the greatest solo run in the history of the sport. It cemented Maradona’s reputation as a sporting deity.
 
 The sale will make Ali Bin Nasser, the Tunisian who refereed the match (but did not see the handball), a rich man. The estimate for the now rather deflated ball at auction is around £3m ($3.5m). The number 10 jersey Maradona wore that day, and swapped after the game with England’s midfielder, Steve Hodge, sold for £7.1m in May. The World Cup, which kicks off in Qatar on Sunday, could fuel interest from bidders. Unlike his eyesight, Mr Nasser’s timing may be immaculate.
@@ -5082,6 +5252,7 @@ Elon Musk said he would reduce his time at Twitter and eventually install a new 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap329.jpg)
 
 PHOTO: GETTY IMAGES
+
 Like much of the world, Indonesia is battling inflation. In October prices rose by 5.7% year on year, well above the Bank Indonesia’s target of 2-4%. So on Thursday policymakers are expected to increase interest rates for the fourth consecutive month, by half a percentage point to 5.25%. Indonesia’s economic prospects, however, are bright.
 
 The economy grew at an annual rate of 5.7% in real terms in the quarter ending in September, the fastest pace in over a year. Foreign investment has poured into the country’s metals-processing sector, which draws on abundant deposits of nickel and other metals. Exports are booming as demand for other natural resources, such as palm oil, has risen.
@@ -5093,6 +5264,7 @@ Joko Widodo, Indonesia’s president, has managed the economy well, keeping gove
 ![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap330.jpg)
 
 PHOTO: DAVE SIMONDS
+
 On Thursday Britain’s latest chancellor, Jeremy Hunt, will deliver his first autumn statement. Designed to reassure investors, its contents will make voters squeal.
 
 The backdrop is Britain’s deteriorating economic outlook, rising interest rates and a sharp increase in the bill to service the government’s debt. To achieve forecasts that by 2027-28 the debt-to-GDP ratio will be falling, the government is expected to announce spending cuts and tax rises worth nearly £55bn ($65.4bn) annually, or around 2.5% of GDP
@@ -5106,6 +5278,7 @@ Much of the total will come from squeezing spending on public services. That is 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap325.jpg)
 
 PHOTO: GETTY IMAGES
+
 Though high-street clothing retailers have struggled in 2022, it has been a good year to tailor the rich. With their customers less at the mercy of inflation, many luxury fashion brands have enjoyed bumper profits. Expectations are thus high on Thursday as Burberry, a classic British brand, reports earnings for the first half of the year.
 
 Burberry will probably return to pre-pandemic levels of profitability. The chief executive, Jonathan Akeroyd, will also unveil his plan to compete with European rivals. Mr Akeroyd has emphasised the brand’s Britishness—and replaced former creative director Riccardo Tisci, an Italian, with Daniel Lee, a Yorkshireman.
@@ -5117,6 +5290,7 @@ The brand’s future, however, lies closer to Beijing than Bradford. Burberry ma
 ![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap328.jpg)
 
 PHOTO: AP
+
 On Thursday American bishops meet in Baltimore as the plenary assembly of the United States Conference of Catholic Bishops wraps up. A day earlier the bishops elected Timothy Broglio, the archbishop for the armed forces, as their national president. He will be an important voice for the church, notably in the battle over abortion in America.
 
 Archbishop Broglio was not the most ardent pro-life campaigner on the ballot. But the bishops’ hard line on abortion is unlikely to change under his leadership. He supported a religious exemption for covid-19 vaccines, on the grounds that some jabs were developed using cells derived from aborted foetal tissue. His new deputy, Archbishop William Lori, has chaired the conference’s committee on pro-life activities.
@@ -5128,6 +5302,7 @@ The conference is out of step with many American Catholics. According to Pew Res
 ![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap327.jpg)
 
 PHOTO: REUTERS
+
 It has been a bumper year for Latin music. In March Anitta became the first Brazilian singer to top Spotify’s global song chart. Bad Bunny, a Puerto Rican who was the most-streamed artist on Spotify in 2020 and 2021, has smashed records again in 2022. When his album “Un Verano Sin Ti” (“A Summer Without You”) was released on May 6th, Bad Bunny became the most-streamed artist on a single day ever.
 
 On Thursday, at the Latin Grammy Awards in Las Vegas, the acts will probably win industry plaudits, too. Bad Bunny leads with ten nominations; Anitta’s hit single “Envolver” (“Involved”) is up for record of the year. Others with a good chance of success include Camilo, a Colombian singer-songwriter; and Edgar Barrera, a Mexican musician. Latin music is also gaining more recognition at international awards shows: “Un Verano” is shortlisted for album of the year at America’s Grammys in February 2023, a first for a Spanish-language record.
@@ -5185,6 +5360,7 @@ Correction: Thursday’s fact of the day stated that there are forecast to be 30
 ![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap343.jpg)
 
 PHOTO: AP
+
 COP27, the UN climate conference held this year in Egypt, is meant to end on Friday. But expecting the talks to conclude on time was optimistic. Negotiations have stuttered and stalled throughout the past two weeks. On Thursday night all that was available from the summit was a 20-page outline of suggestions for a global climate plan, in which almost everything had yet to be finalised.
 
 COPs often run overtime. COP21, at which the Paris Agreement was signed, and COP26 in Glasgow stretched into an extra day. Negotiations at this year’s summit have proceeded especially slowly.
@@ -5196,6 +5372,7 @@ The biggest dispute is over a “loss-and-damage” fund. Poor countries are dem
 ![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap337.jpg)
 
 PHOTO: GETTY IMAGES
+
 Asian countries have hosted a trio of summits in recent weeks. After the ASEAN summit, in Cambodia, and the G20, in Indonesia, comes the Asia-Pacific Economic Co-operation forum, in Thailand. During the three-day conference, which continues on Friday, APEC’s 21 members are expected to ratify the “Bangkok Goals”, a plan for climate action. That is welcome. But two concerns hang over proceedings.
 
 The first is anxiety about the global economy. Smaller APEC countries fear economic downturns will hit America and China, their main trading partners. And governments in the Asia-Pacific, like those elsewhere, are also confronted with rising inflation.
@@ -5207,6 +5384,7 @@ The second worry is whether America and China, the two biggest APEC members, can
 ![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap341.jpg)
 
 PHOTO: GETTY IMAGES
+
 On Friday Russia’s foreign minister, Sergei Lavrov, will discuss the “new geopolitical environment” at a meeting in Moscow of the Council of Heads of the Subjects of the Russian Federation, an assembly of regional governors and high-ranking officials. Most governors are fiercely loyal to President Vladimir Putin, and are likely to give Mr Lavrov a warm homecoming after his challenging week representing Russia at the G20 summit in Bali. (His boss declined an invitation.)
 
 Western leaders at the G20 made clear their fury at Russia’s invasion of Ukraine. But Mr Lavrov will be more concerned about subtler rebukes from leaders who have been more equivocal. Xi Jinping, China’s president, a crucial ally for Mr Putin, decried the “weaponisation” of food and energy, an apparent reference to the painful economic consequences of the war. Russia’s agreement on Thursday to extend a deal allowing exports of Ukrainian grain via the Black Sea could help assuage Mr Xi’s concerns. But patience among Russia’s friends is wearing thin.
@@ -5216,6 +5394,7 @@ Western leaders at the G20 made clear their fury at Russia’s invasion of Ukrai
 ![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap339.jpg)
 
 PHOTO: GETTY IMAGES
+
 Luiz Inácio Lula da Silva will not be inaugurated as Brazil’s president—an office he first held nearly 20 years ago—until January 1st. But the new-old president-elect is already on his diplomatic travels. On Wednesday he spoke in Egypt at COP27, the UN’s climate conference. Lula said “Brazil is back” and promised to fight deforestation in the Amazon rainforest. On Friday he is in Lisbon, at the first bilateral summit between Brazil and Portugal since 2016.
 
 Lula’s approach to environmental and foreign policy is markedly different from that of Jair Bolsonaro, the right-wing populist he beat in October’s election. Mr Bolsonaro did not attend the previous two COP summits and, on his watch, deforestation in the Amazon spiked by 73% between 2018 and 2021. Whereas Mr Bolsonaro discouraged foreign help to protect the rainforest, Lula has asked for it. That is already paying off: after Lula’s election, Germany and Norway said they would once again contribute to the “Amazon Fund” of money used by Brazil for conservation.
@@ -5227,6 +5406,7 @@ Lula’s approach to environmental and foreign policy is markedly different from
 ![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap344.jpg)
 
 PHOTO: AP
+
 “She Said”, the first major Hollywood film to focus on Hollywood’s most recent big scandal, is released in America on Friday. It stars Zoe Kazan and Carey Mulligan as Jodi Kantor and Megan Twohey, journalists at the New York Times who in 2017 investigated sexual abuse by Harvey Weinstein, a powerful producer.
 
 The pair’s findings ignited the #MeToo movement and chipped away at the film industry’s institutional sexism. The director of “She Said”, Maria Schrader, and its screenwriter, Rebecca Lenkiewicz, are both women, which before 2017 would have been unusual for a drama about a newspaper. Their film follows a formula established by “All The President’s Men” (1976), about the Washington Post’s Watergate sleuthing, by chronicling the exhausting, unglamorous work of frustrating phone calls and long editorial meetings.
@@ -5298,6 +5478,7 @@ The Biden administration said that Muhammad bin Salman, Saudi Arabia’s de fact
 ![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap353.jpg)
 
 PHOTO: GETTY IMAGES
+
 On Saturday the three-quarters of Malaysians who think their country is on the wrong track have a chance to apportion the blame. That is tougher than it seems: since the most recent vote, in 2018, Malaysia has had three prime ministers from three different parties. Distracted by bickering and backstabbing, no one has governed well.
 
 The ruling Barisan Nasional coalition has promised stability, hoping that voters will look past its atrocious record of corruption. The lead party in the ascendant Perikatan Nasional coalition wants the government to be as devoutly Islamic as the country’s Malay majority, to the dismay of Indian and Chinese voters. And the Pakatan Harapan coalition hopes to rack up votes in cities by talking about good governance, something it failed to deliver after triumphing in 2018. Alas, polls suggest a hung parliament is likely. The next government may be chosen not just in polling booths but in smoke-filled rooms.
@@ -5309,6 +5490,7 @@ The ruling Barisan Nasional coalition has promised stability, hoping that voters
 ![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap351.jpg)
 
 PHOTO: AFP
+
 After a week in Asia, Emmanuel Macron on November 19th heads to Djerba, an island in Tunisia. There the French president will attend the Francophone summit, a bi-annual get-together of leaders of French-speaking countries. It is often an awkward gathering: an attempt to reaffirm the vitality of their common language at a time when French is challenged by the spread of English, Mandarin Chinese and other tongues. Many Francophones contest the rigid guardianship of the language by post-colonial France. Today, of the 321m people who speak French, 62% live in Africa.
 
 Mr Macron has long argued for a less formal, more vibrant way for Francophone countries to interact, once calling La Francophonie “a tired club”. But, informally, culture will not be the only talking point. The French president may well also want to discuss the war in Ukraine and insecurity in the African Sahel–France withdrew its troops from Mali after a coup in August 2021 and closed a counter-terrorist operation there.
@@ -5320,6 +5502,7 @@ Mr Macron has long argued for a less formal, more vibrant way for Francophone co
 ![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap349.jpg)
 
 PHOTO: ARSMEDIA
+
 A documentary with disturbing new allegations about the siege of Sarajevo screened at Istanbul’s International Crime and Punishment Film Festival this week. “Sarajevo Safari”, a film by Miran Zupanic, a Slovenian, alleges that during the Bosnian war of 1992-95 certain foreigners paid Serbian forces to allow them to fire upon civilians in the city. An unidentified man working for an American agency says he witnessed this. And a Bosnian army veteran tells of a captured combatant who recounted how foreigners, dressed for hunting, spoke of paying for the opportunity to shoot.
 
 The allegation that outsiders were invited to fire into Sarajevo is not new. (Footage exists of a Russian writer, the late Eduard Limonov, apparently doing so.) But the charge that money changed hands has fuelled fresh outrage. After “Sarajevo Safari” was shown in Sarajevo itself in September, the Bosnian prosecutor’s office opened a new investigation into the shootings. The documentary is due to appear on Balkan television in January.
@@ -5331,6 +5514,7 @@ The allegation that outsiders were invited to fire into Sarajevo is not new. (Fo
 ![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap350.jpg)
 
 PHOTO: TATE/MADELEINE BUDDO
+
 As a youngster Magdalena Abakanowicz saw the horror of the second world war at close range. Drunk German soldiers invaded her home and shot her mother. Ms Abakanowicz discovered that making art was a way to feel free. The Polish textile artist’s extraordinary work went on display at the Tate Modern museum in London on Thursday.
 
 Her sculptures, made from fibres like horsehair, sisal and braided hemp, are meditations on the power of imagination to overcome oppression. After the war, while seeking to study at the Academy of Fine Arts in Warsaw, she changed her name and posed as the daughter of a clerk—any sign of her landowning heritage would have led to her being denounced as a class enemy and jeopardised her place. At the time Socialist Realism was considered the only acceptable art form. In 1960 one of Ms Abakanowicz’s shows was censored after being categorised as Formalist and therefore dangerous. “In Poland it was almost forbidden to talk about mystery,” she told the New York Times. “I did.”
@@ -5342,6 +5526,7 @@ Her sculptures, made from fibres like horsehair, sisal and braided hemp, are med
 ![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap354.jpg)
 
 PHOTO: REUTERS
+
 The implosion of FTX, until recently a major crypto exchange, has left plenty of people with egg on their faces. But one crypto giant has emerged stronger—at least for now. Binance has cemented its status as the world’s largest cryptocurrency exchange. And Changpeng Zhao, its 45-year-old co-founder and boss, has triumphed. The crypto crash may have taken its toll on Mr Zhao’s fortune, but he is still worth a cool $17bn.
 
 Mr Zhao was born in China in 1977. When he was 12 his family, facing repression at home, fled to Canada. But after studying computer science at McGill University in Montreal, Mr Zhao returned to China. In 2015, convinced that bitcoin “would do to finance what the internet would do to information,” he launched Bijie Tech, which offered software to crypto exchanges, in Shanghai.
@@ -5472,6 +5657,7 @@ emir 埃米尔（对某些穆斯林统治者的尊称）
 ![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap360.jpg)
 
 PHOTO: GETTY IMAGES
+
 On Monday a plot of land in Shenzhen, a city in south China, will go up for auction. It was supposed to be the new headquarters for Evergrande. But thoughts of a shiny new office are far off for the struggling Chinese property developer. The company is months behind schedule for releasing a plan on restructuring its massive debts. The group, which has some $300bn in liabilities, has been the bellwether for China’s embattled property industry. It defaulted in December, promising to produce a restructuring plan within six months. But investors remain in the dark.
 
 The Chinese government recently announced measures that will help distressed property firms. Bank loans for some companies that were due in the next six months can now be extended. But it is unclear how much this will help Evergrande, which is still being forced to hock assets, such as the land in Shenzhen, to avoid collapse.
@@ -5495,6 +5681,7 @@ That might be tricky. Oil and natural gas power the economy of the United Arab E
 ![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap362.jpg)
 
 PHOTO: GETTY IMAGES
+
 Soon after becoming Twitter’s owner, chief executive and only board member on October 27th, Elon Musk ordered staff to stop working from home and get back to the office. Last Thursday they received an email announcing, without explanation, that the firm’s San Francisco headquarters were closed. On Monday the office will re-open. The question is how many staff will come back.
 
 If Mr Musk’s three weeks in charge have looked chaotic from the outside (the latest: reinstating Donald Trump’s account, following an online poll), internally they have been even bumpier. He sacked half the employees in his first week, and later laid off contractors moderating content. Last week he ordered remaining staff to re-commit to “extremely hardcore” work, or leave. Many reportedly walked.
@@ -5508,6 +5695,7 @@ Twitter had been over-staffed, relative to peers. But the scale and speed of the
 ![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap366.jpg)
 
 PHOTO: GETTY IMAGES
+
 Albin Kurti, Kosovo’s prime minister, and Aleksandar Vucic, Serbia’s president, meet in Brussels on Monday as the EU seeks to calm the latest tensions between the Balkan neighbours. The meeting coincides with a deadline set by Kosovo for drivers in mostly ethnically Serb areas to ditch Serbia-issued licence plates, or face a fine when driving in Kosovo.
 
 Kosovo, where the majority of people are ethnic Albanians, declared independence from Serbia in 2008. Although 117 countries recognise it internationally, Serbia does not. The latest spat, which has prompted Kosovo Serbs to quit some of the country’s institutions, has only increased tensions.
@@ -5521,6 +5709,7 @@ Even if Messrs Kurti and Vucic can cobble together a deal on number plates, more
 ![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap364.jpg)
 
 PHOTO: JOHN WILSON/NETFLIX © 2022
+
 In 2019 Rian Johnson, a director, introduced viewers to the camp murder mystery of “Knives Out”, starring Daniel Craig as Benoit Blanc, a detective extraordinaire, sniffing out a killer in a clique of entitled snobs in Massachusetts. Now Mr Johnson is back with “Glass Onion: A Knives Out Mystery,” another mind-bendingly intricate whodunnit starring Mr Craig, this time set on a private Greek island.
 
 Mr Johnson’s delightfully colourful and clever comedy, which is released in America and Britain on November 23rd, is part of an intriguing trend. Two other recent releases have crass multi-millionaires getting their bloody comeuppance on small islands: “The Menu”, starring Ralph Fiennes as a vengeful celebrity chef, and “Triangle Of Sadness”, the winner of the Palme d’Or at this year’s Cannes Film Festival.
@@ -5579,6 +5768,7 @@ The football associations of seven European countries told their captains not to
 ![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap305.jpg)
 
 PHOTO: AP
+
 America’s vice-president is in the Philippines. After meeting on Monday with the country’s president, Ferdinand Marcos junior, on Tuesday Kamala Harris will visit Palawan, an island on the front line of a struggle for maritime dominance. It is to the west and north of Palawan that America’s navy conducts “freedom of navigation” missions around the disputed South China Sea, most of which China claims as its own. China and the Philippines also squabble over fishing and oil-and-gas rights within the 200-nautical-mile Philippine “exclusive economic zone”.
 
 To manage the Chinese navy, coastguard and fishing fleet without overly riling it, the Philippines deploys its civilian coastguard rather than its (rather feeble) navy. Ms Harris’s visit will include a spell aboard such a Philippine boat, albeit safely outside waters claimed by China. That is intended to communicate America’s readiness to help the Philippines defend itself from armed attack. China, irked by such commitments, may find a way to signal its disapproval for Ms Harris’s showboating.
@@ -5590,6 +5780,7 @@ To manage the Chinese navy, coastguard and fishing fleet without overly riling i
 ![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap308_0.jpg)
 
 PHOTO: GETTY IMAGES
+
 There is a bout of optimism around the EU economies these days. Quarterly GDP figures released last week were not as bad as expected, employment continued to grow and, crucially, energy prices on wholesale markets have come down from their summer highs. On Tuesday the OECD, an intergovernmental research body, will add its assessment of Europe’s economic outlook.
 
 The elation may be premature. Energy prices have fallen but remain high, straining businesses that have ticked along thanks to a post-pandemic economic rebound. Long-term contracts with gas and electricity suppliers have cushioned the blow this year—but in 2023 the full effect of energy price rises will be felt.
@@ -5603,6 +5794,7 @@ A second worry is the hit to the incomes of European households. A post-pandemic
 ![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap307.jpg)
 
 PHOTO: PA
+
 Death has galvanised protest for more than two months in Iran. Unrest began in mid-September when Mahsa Amini, a young woman detained by the morality police, died in custody. Whenever protests seemed to ebb, more killings sent people back to the streets. So it was in recent days, after Kian Pirfalak, a nine-year-old boy, was shot by security forces. His funeral drew large crowds.
 
 The regime has arrested thousands and issued a handful of death sentences. In the past week it detained two actresses who removed their headscarves in public. But it has not been able to stop the scattered, leaderless unrest. There have been periodic strikes across the country, including in Tehran’s famed bazaar. Before their opening World Cup match against England on Monday Iran’s team refused to sing the national anthem. Ehsan Hajsafi, the captain, has already said he “sympathises” with the protesters—an act of defiance on the world’s biggest stage.
@@ -5614,6 +5806,7 @@ The regime has arrested thousands and issued a handful of death sentences. In th
 ![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap303.jpg)
 
 PHOTO: GETTY IMAGES
+
 King Charles III will host his first state visit as Britain’s monarch on Tuesday. It will offer his guest, Cyril Ramaphosa, South Africa’s president, welcome respite from politics at home.
 
 For on Tuesday Mr Ramaphosa will also learn how many nominations he has received to continue leading South Africa’s ruling African National Congress, ahead of a vote at the party’s national conference next month. Although he is expected to have a solid lead over his rivals, the ANC has acquired a habit of defenestrating sitting presidents.
@@ -5627,6 +5820,7 @@ Mr Ramaphosa may enjoy discussing with the King shared interests such as wildlif
 ![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap304.jpg)
 
 PHOTO: AP
+
 In “American Caliph”, a book published on Tuesday, Shahan Mufti, an American journalist, tells the extraordinary, and largely forgotten, story of what is still the largest-ever hostage-taking in America.
 
 In 1977 the Hanafis, a black Muslim group based in Washington, DC, took nearly 150 people hostage in three buildings near the White House. The siege, masterminded by Hamaas Abdul Khaalis—who styled himself as an American Caliph or leader of America’s Muslims—was intended to stop the release of a film Hanafis considered blasphemous, and as revenge for the murder of several members of Khaalis’s family by the Nation of Islam, a rival group. Two hostages died.
@@ -5685,6 +5879,7 @@ Italy’s right-wing government agreed on the details of its budget for next yea
 ![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap315.jpg)
 
 PHOTO: GETTY IMAGES
+
 “We have been bearing down on terrorists for a few days with our planes, cannons and guns,” declared Recep Tayyip Erdogan on Tuesday. Tanks and soldiers, Turkey’s president added, would follow. Mr Erdogan has been threatening for months a military operation in northern Syria. Last year parliament extended by two years the government’s mandate to move troops into Iraq and Syria. But Mr Erdogan’s argument for a ground incursion has been growing louder since November 13th, when a bomb attack in Istanbul began a deadly tit-for-tat.
 
 Turkey blamed the bomb on the Kurdistan Workers’ Party, a rebel group fighting for Kurdish self-rule within Turkey. The group denied that claim. On Sunday Turkish rockets rained down on Kurdish militants in Iraq and Syria; a retaliatory strike on Monday killed two Turkish citizens in Gaziantep, a province adjacent to Syria. Although tensions are rising, the West has been loth to restrain Mr. Erdogan, who has become a helpful go-between in the conflict between Russia and Ukraine.
@@ -5696,6 +5891,7 @@ Turkey blamed the bomb on the Kurdistan Workers’ Party, a rebel group fighting
 ![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap311.jpg)
 
 PHOTO: REUTERS
+
 On Wednesday Credit Suisse holds an extraordinary general meeting for shareholders. The Swiss bank needs their approval to raise more capital for an ambitious restructuring plan it announced in late October. Ravaged by scandal and losses, Credit Suisse needs at least SFr4bn ($4.2bn) from investors to pad its balance-sheet. The Saudi National Bank is expected to buy a 9.9% stake, worth SFr1.5bn. That would make it the Swiss bank’s biggest shareholder.
 
 In its new incarnation Credit Suisse plans to focus on international wealth management, as well as its domestic bank and asset-management division. Investment banking will be radically downsized to reduce risk, with Credit Suisse First Boston, the investment-banking arm of Credit Suisse, spun off. It will also let go of its securitised products business. And as it seeks a path back to stability, Credit Suisse plans to lay off around 9,000 of its 52,000 employees.
@@ -5707,6 +5903,7 @@ In its new incarnation Credit Suisse plans to focus on international wealth mana
 ![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap312.jpg)
 
 PHOTO: ALAMY
+
 A decision by Britain’s highest court on Wednesday could determine the future of the United Kingdom. Judges of the Supreme Court will rule on whether Scotland’s devolved parliament, in Edinburgh, may pass a law calling for a referendum on independence without the approval of Britain’s government, in Westminster.
 
 In a vote in 2014, held with the approval of David Cameron’s government, Scots rejected independence by 55% to 45%. But Brexit, which Scots voted against, along with dampened confidence in the British government, could make continued union less palatable.
@@ -5720,6 +5917,7 @@ If the court allows her, Nicola Sturgeon, Scotland’s first minister, wants a r
 ![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap313.jpg)
 
 PHOTO: GETTY IMAGES
+
 The Collective Security Treaty Organisation (CSTO), a supposed military alliance between Russia and five ex-Soviet countries—Armenia, Belarus, Kazakhstan, Kyrgyzstan, and Tajikistan—began the year with a show of strength. In January Kassym-Jomart Tokayev, Kazakhstan’s president, invoked the organisation’s collective-security clause to deal with anti-government protests. Within hours the Russian army came to his aid. But when CSTO leaders convene in Armenia on Wednesday to discuss regional security, spirits will have dropped.
 
 Russia, which keeps its troops in CSTO countries as part of the security pact, has been overstretched by its war in Ukraine. Family feuds have also hobbled the organisation. Last month, amid a simmering border conflict between Tajikistan and Kyrgyzstan, “Indestructible Brotherhood-2022” a joint military operation, was called off. In September Armenia asked the organisation for weapons to fend off an attack from its bitter foe Azerbaijan, but the CSTO was able to muster only a fact-finding mission. That may be the best the club’s members can hope for.
@@ -5731,6 +5929,7 @@ Russia, which keeps its troops in CSTO countries as part of the security pact, h
 ![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap314.jpg)
 
 PHOTO: AP
+
 What makes a superstar film-maker? Steven Spielberg offers a moving answer in “The Fabelmans,” a thinly disguised account of his upbringing that is released across America on Wednesday. Raised by a computer-engineer father (Paul Dano) and piano-playing mother (Michelle Williams), Samuel Fabelman is left shaken after he sees the climactic train crash in Cecil B. DeMille’s “The Greatest Show on Earth” (1952). Sammy (Gabriel LaBelle) spends the rest of his life trying to recreate that sense of awe by making his own moving images.
 
 The director of “E.T.”, “Jaws” and most recently “West Side Story” is America’s best-known conjuror of cinematic fantasy; it is not easy to picture his origins in quotidian reality. But Mr Spielberg paints a detailed, emotionally intelligent portrait of his postwar Jewish suburban family—loving, yet gradually fractured by parental conflict—but avoids the amber-tinged nostalgia of much boomer-era biography. Funny and wise, the film is one by a consummate showman slowing down to reflect.
@@ -5787,6 +5986,7 @@ Twin bomb attacks on Jerusalem’s bus network during rush hour killed one and i
 ![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap324.jpg)
 
 PHOTO: GETTY IMAGES
+
 When the Bank of Korea’s monetary policy committee meets on Thursday Rhee Chang-yong, its governor, is expected to raise its interest rate above the current level of 3%. Failure to keep up with America’s Federal Reserve, which hiked rates to 3.75% on November 2nd, could trigger capital flight from South Korea, further weakening the won.
 
 But increasing rates also carries risks. Bond markets have been in turmoil for almost two months since the governor of Gangwon province refused to pay back creditors who bought bonds issued to fund the construction of Legoland, an amusement park. A U-turn from the Gangwon government, and a liquidity injection into the corporate-bond market, did little to calm investors. With personal debt levels high, the central bank is under pressure to keep rates steady to avoid defaults and fend off a recession. Mr Rhee has warned of “growing signs of stress”. He may be talking about himself as much as the economy.
@@ -5798,6 +5998,7 @@ But increasing rates also carries risks. Bond markets have been in turmoil for a
 ![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap327.jpg)
 
 PHOTO: AP
+
 Since August Donald Trump has sought to thwart a government probe into classified documents that the FBI seized from his home in Florida. The former president’s lawyers had early success in persuading a district-court judge to restrict investigators’ access to the documents and appoint an independent reviewer, known as a “special master”, to screen them for material protected by executive privilege.
 
 But on appeal the case has trended against Mr Trump. Following a hearing on Tuesday at the 11th Circuit Court of Appeals—where judges were sceptical that courts should “interfere with the executive branch’s ongoing investigation” in a criminal matter—the skirmishing seems likely to end in the justice department’s favour. A ruling giving investigators access to the documents could come at any time after Thanksgiving.
@@ -5811,6 +6012,7 @@ Last week Merrick Garland, the attorney-general, named Jack Smith as special cou
 ![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap329.jpg)
 
 PHOTO: GETTY IMAGES
+
 Another month, another packed agenda for EU energy ministers as they meet on Thursday. A warm autumn has offered some respite from dizzying wholesale energy prices. But policymakers are already bracing for a difficult 2023.
 
 The main topic of discussion is a cap on the price of gas used to generate electricity, proposed by the European Commission on Tuesday. Opponents, notably gas-dependent Germany, fear that such a cap may lead suppliers to reduce shipments to Europe, thus intensifying the energy crisis. But advocates of a cap are not thrilled with the commission’s proposal either. The ceiling is set at a lofty €275 ($284) per megawatt-hour, and would apply only when European wholesale prices diverge from those of global liquefied natural gas (as they did over the summer). Another proposal on the table is to speed up the rollout of renewable energy to reduce Europe’s dependence on gas. That is less controversial, and probably a lot more effective.
@@ -5824,6 +6026,7 @@ The main topic of discussion is a cap on the price of gas used to generate elect
 ![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap330.jpg)
 
 PHOTO: DAVE SIMONDS
+
 On Thursday Cuba’s Communist president, Miguel Díaz-Canel, will land in China to ask its president, Xi Jinping, for economic help. His rare trip abroad—which also took him to Algeria, Russia and Turkey—is a sign of desperation. The gradual deterioration of Cuba’s economy under six decades of dictatorship has been exacerbated by tighter American sanctions during Donald Trump’s administration, the pandemic, and now inflation. Food is scarce and expensive, and power outages afflict Havana, the capital.
 
 Yet Mr Díaz-Canel has reason for optimism. His four hosts may find that footing a moderate bill to help 11.3m Cubans is worth it to poke a stick at America. Algeria’s government, for example, has already agreed to export oil and gas to Cuba and donate a solar plant. China may also consider restructuring or even forgiving Cuban debt, and could offer technical assistance in energy and farming. But despite such relief, until the Communist Party loosens its grip, Cuba will be forced to depend on its allies.
@@ -5835,6 +6038,7 @@ Yet Mr Díaz-Canel has reason for optimism. His four hosts may find that footing
 ![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap328.jpg)
 
 PHOTO: GETTY IMAGES
+
 After Russia’s invasion, the speeches of Volodymyr Zelensky, Ukraine’s president, were beamed to parliaments, award ceremonies and front pages around the world. A new collection of Mr Zelensky’s speeches will be published on Thursday. Proceeds from its sales will go to “United24”, an initiative that channels donations to the Ukrainian state itself.
 
 “A Message from Ukraine” includes 16 speeches, spanning Mr Zelensky’s hopeful inauguration in 2019 to his wartime call to arms in 2022. (It also features a preface by The Economist’s Russia editor.) The collection displays the president’s firm grasp on the emotions of his audience—a skill honed during his earlier career as an actor and comedian. And it showcases Mr Zelensky’s well-chosen historical references, designed to suit the audience of the day. Speaking to Britain’s parliament, he echoes Winston Churchill; to the German Bundestag, he invokes the Berlin Wall. Before the war, many thought Mr Zelensky’s backstory made him unsuitable for office. Now his experience as an entertainer seems his greatest strength.
@@ -5892,6 +6096,7 @@ Data from America’s Department of Agriculture show that a record 50.5m birds h
 ![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap336.jpg)
 
 PHOTO: GETTY IMAGES
+
 On Friday Cardinal Joseph Zen, a former Bishop of Hong Kong, will be sentenced for the crime of raising money for pro-democracy protesters. Unlike many of the people he helped—more than 1,000 have been sentenced to prison—the 90-year-old is likely to get only a fine. Cardinal Zen’s hopes for democracy in Hong Kong, shared by many of the territory’s Catholics, were crushed by China’s Communist Party. Now the party is going after their faith, too.
 
 On the mainland China’s regime increasingly exerts control over Catholic churches, in part by pressuring them to register with the government. Clergy at registered churches must impart Communist Party doctrine to parishioners. A secret deal signed in 2018 by China and the Vatican is thought to give the party authority to nominate bishops.
@@ -5905,6 +6110,7 @@ The “sinicisation” of Catholicism has now reached Hong Kong. Catholic missio
 ![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap337.jpg)
 
 PHOTO: AP
+
 On Friday a new coal-fired power station will begin operating in southern Bangladesh. The project sits 14km from the Sundarbans, the world’s largest mangrove forest and a UNESCO heritage site. The plant, which cost $2bn to build, will burn 5m tonnes of coal each year. Bangladesh’s government hailed it as a symbol of co-operation with neighbouring India, the project’s main financier. But the plant is controversial: environmentalists opposed it and demanded that private banks not fund it, partly because of the threat it poses to the forest.
 
 Bangladesh’s energy policy is cleaner than this fiasco suggests. Last year the government scrapped plans to construct ten coal-fired power stations after pressure from activists and trouble getting the necessary investments. It has instead focused largely on building natural-gas and nuclear plants. But domestic gas reserves are declining and imports are expensive. Regular blackouts—last month more than 100m people were plunged into darkness—may also slow Bangladesh’s transition away from the world’s dirtiest fuel.
@@ -5918,6 +6124,7 @@ Bangladesh’s energy policy is cleaner than this fiasco suggests. Last year the
 ![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap339.jpg)
 
 PHOTO: GETTY IMAGES
+
 Black Friday, when retailers around the world offer a dizzying array of discounts, usually marks the beginning of a merry season of frenzied consumerism. This year may be different. In October retail sales in America were higher than expected, but sales of electronics and various other discretionary goods continued to fall as consumers’ wallets were squeezed by inflation. That may spell trouble for businesses banking on an orgy of overindulgence.
 
 To lure customers, American retailers have introduced deeper Black Friday discounts than in previous years. But even after these deals, inflation still makes many products more expensive than last year’s shopping season. And because their bank accounts are no longer bulked up by savings made during the early months of the pandemic, shoppers have less to splurge.
@@ -5931,6 +6138,7 @@ The football World Cup may squeeze sales further. With America and England playi
 ![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap338.jpg)
 
 PHOTO: GETTY IMAGES
+
 The east of Congo is home to one of the world’s forgotten wars. Or, rather, to many forgotten wars. More than 100 militias operate in the region, mostly local groups fighting for land and commodities. But one, M23, is more disruptive than others—over the past year it has seized towns and killed dozens of people. Congo and the UN reckon the group is backed by Rwanda, and that its attacks are part of a broader contest for power in the Great Lakes, a region of 100m people across Congo, Rwanda and Uganda.
 
 On Wednesday regional leaders meeting in Angola gave M23 an ultimatum: if a ceasefire is not in place in eastern Congo by 6pm local time on Friday, then Kenyan-led troops may force M23 to lay down arms. Even Rwanda’s foreign minister signed the statement calling for peace. But Congolese—who have endured more than three decades of violence—will believe it only when they see it.
@@ -5942,6 +6150,7 @@ On Wednesday regional leaders meeting in Angola gave M23 an ultimatum: if a ceas
 ![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap340.jpg)
 
 PHOTO: SEAMUS RYAN/NETFLIX
+
 In “Lady Chatterley’s Lover” the heroine wishes for men to “leave [her] alone”. Film-makers seem unwilling to do the same to D.H. Lawrence’s final novel, first published in 1928 (obscenity laws meant that uncensored copies weren’t sold in America and Britain for another 30 years). The book—detailing the affair of an aristocrat and her gamekeeper—has been repeatedly adapted in the decades since.
 
 The latest version, made for Netflix, will appear in cinemas in America and Britain from Friday and on the streaming service in December. Laure de Clermont-Tonnerre, the film’s French director, is not the first to apply a feminist lens to the story. In 2006 Pascale Ferran, another French director, was lauded for focusing on Lady Chatterley’s perspective (writers including Simone de Beauvoir had previously taken Lawrence to task for his patriarchal pomposity). Ms Clermont-Tonnerre’s take also focuses on the environment, championing the natural world that “mechanised greed” has ruined. What was once seen as simply blue is cast in a more modern shade of green.
@@ -6020,6 +6229,7 @@ Football World Cup: America’s footballers maintained their unbeaten record aga
 ![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap350.jpg)
 
 PHOTO: AP
+
 Taiwan goes to the polls on Saturday. Citizens will elect nine levels of local government, from city mayors to borough chiefs, and take part in a referendum on the minimum ages at which people may vote and run for office. Local-election campaigns in Taiwan tend to focus on quotidian issues like public transport and health care. One topic that does not usually feature is China, which regards Taiwan as a renegade province. But with China’s increasingly belligerent rhetoric jangling Taiwanese nerves, this year some Democratic Progressive Party (DPP) candidates have publicly pledged that in the event of an invasion they would defend the island and refuse to surrender.
 
 Such hawkish stances have helped the DPP win general elections against the pro-unification Nationalist Party in the past. For all that, on Saturday most voters will be casting their votes on local-governance issues. But the campaign may foreshadow Taiwan’s 2024 presidential election, at which politicians’ views on China will matter more than ever.
@@ -6031,6 +6241,7 @@ Such hawkish stances have helped the DPP win general elections against the pro-u
 ![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap351.jpg)
 
 PHOTO: AP
+
 On Saturday voters in Georgia begin to return to the polls to pick a senator. Since neither Raphael Warnock, the Democratic incumbent, nor Herschel Walker, his Republican challenger, secured a majority at the midterms earlier this month, their race has gone to a run-off. Voting ends on December 6th.
 
 Republicans should have clinched the seat, amid dissatisfaction with Democratic control of Congress in Washington. In the governor’s race in Georgia the Republican candidate, Brian Kemp, was re-elected by eight percentage points. That Mr Walker, a former American-football star, fell short reflects his awful campaign, marred by allegations that he paid for ex-girlfriends’ abortions despite his avowed support for a ban on the procedure.
@@ -6044,6 +6255,7 @@ Now Mr Walker hopes to win over some of the 200,000 people who voted for Mr Kemp
 ![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap352.jpg)
 
 PHOTO: AP
+
 “All the Beauty and the Bloodshed” profiles a master of candid photography who went on to confront the billionaires at the heart of the opioid crisis. In the 1980s Nan Goldin made her name with disarmingly intimate images of bohemian young outsiders like herself. A few years ago she revealed her own near-fatal brush with OxyContin addiction, and launched a protest against the Sackler family, who founded and owned Purdue Pharma, which made the drug.
 
 The documentary, which premiered in America on Wednesday, maintains a hushed intensity as Ms Goldin recounts her traumatic upbringing: a beloved sister’s suicide, suburban parents in denial, foster homes. It is directed by Laura Poitras, who shows how Ms Goldin responded by pressing museums into removing the Sacklers’ name from their nameplates. The film is a portrait of the artist as lover and fighter, tough and tender, and hiding nothing.
@@ -6055,6 +6267,7 @@ The documentary, which premiered in America on Wednesday, maintains a hushed int
 ![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap353.jpg)
 
 PHOTO: FACEBOOK.COM/SNOOPY
+
 Who is the greatest dog in fiction? Lassie, Rin Tin Tin and Dorothy’s Toto in “The Wizard of Oz”? All have their appeal. But the answer is surely Snoopy. His creator, Charles Schulz, born 100 years ago on Saturday, translated his dour Minnesotan childhood into “Peanuts”, a cartoon strip in which children confront uncomfortable truths virtually free from adult intervention. Schulz reimagined his boyhood pet, Spike, a playful mongrel, as a beagle: the loyal companion of the hapless Charlie Brown.
 
 Schulz’s human characters, with their large heads and tiny torsos, look vulnerable. They muse bleakly about unrequited love and the elusive nature of happiness. But Snoopy is a sunny presence, the only “Peanuts” character allowed to give kisses. Besides inspiring many people to own a dog, Schulz’s Snoopy encouraged other artists to imbue their own animal creations with psychological depth. And Schulz was paid more than peanuts—by the time he died in 2000, Snoopy merchandise was netting him $30m-40m a year.
@@ -6066,6 +6279,7 @@ Schulz’s human characters, with their large heads and tiny torsos, look vulner
 ![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap349.jpg)
 
 PHOTO: GETTY IMAGES
+
 At the World Cup in Qatar, Saudi fans are outnumbered only by Americans and those of the hosts. Proximity to Qatar certainly helps, but no one should doubt the Saudis’ passion for the game. Yet their national team had little to show for it on the sport’s biggest stage—until this week. On Tuesday the Green Falcons, as they are known, shocked Argentina, among the pre-tournament favourites.
 
 King Salman gave workers the day off in celebration, just one sign of the commitment the country’s rulers have shown to the sport. In 2021 the Saudi Public Investment Fund, chaired by Crown Prince Mohammad bin Salman, bought Newcastle United, a team in England’s Premier League. PIF money has also poured into Saudi Arabia’s domestic league, which attracts tens of thousands of spectators. And Saudi officials are plotting an audacious bid to host the World Cup in 2030.
@@ -6179,6 +6393,7 @@ Fury mounts over lockdowns in China
 ![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap359.jpeg)
 
 PHOTO: GETTY IMAGES
+
 Residents of China’s cities return to work on Monday after a weekend of widespread protests against draconian “zero-covid” measures. Frustrations with months of lockdowns spread after a fire in Urumqi, in the western region of Xinjiang, left ten dead on Thursday. Many blamed covid restrictions for hindering fire-fighters and occupants who were trying to escape.
 
 On Saturday night demonstrators in Shanghai called for President Xi Jinping to step down—an extremely rare show of defiance. On Sunday night in Beijing crowds sang the “Internationale”, a socialist anthem, and mourned the deaths in Xinjiang. Students at several university campuses held up blank sheets of paper to highlight China’s lack of free speech.
@@ -6192,6 +6407,7 @@ China’s rulers hate instability. But they are in a bind. The country is grippe
 ![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap355.jpeg)
 
 PHOTO: ALAMY
+
 Staff of the Magic Kingdom will gather on Monday morning for a virtual town-hall meeting with Bob Iger, who began a second stint as chief executive a week ago. Mr Iger ran Disney for 15 stellar years before stepping down in 2020. His successor, Bob Chapek, had a tougher time and was booted out on November 20th after quarterly results showed growing losses at Disney+, the company’s streaming service. Mr Iger will now try to steady the ship in two years.
 
 Investors are glad to have him back: Disney’s stock has risen since his return. And staff are mostly pleased that Mr Iger is undoing a centralising strategy initiated by Mr Chapek, handing power back to Disney’s creative teams. But the difficulties at Disney, and across Hollywood, run deeper. Streaming is undermining the cinema and cable industries and turning out to be less profitable than either. The new-old Bob will need more than new-old ideas.
@@ -6205,6 +6421,7 @@ Investors are glad to have him back: Disney’s stock has risen since his return
 ![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap361.jpeg)
 
 PHOTO: GETTY IMAGES
+
 On Monday America’s Senate returns from its Thanksgiving break to debate the Respect for Marriage Act, a bill that would strengthen rights for same-sex couples. It will also consider some two dozen nominees for judgeships on federal courts and may hold votes on two district-court nominees.
 
 Both are women: Camille Vélez-Rivé in Puerto Rico and Anne Nardacci in New York. That is consistent with President Joe Biden’s previous appointments: of the 85 judges he has seated so far, including Ketanji Brown Jackson on the Supreme Court, just 21 are men. Nearly a quarter are African-American and two-thirds are non-white.
@@ -6218,6 +6435,7 @@ The Democrats’ marginal majority in the Senate allowed Mr Biden to rapidly ush
 ![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap301.jpg)
 
 PHOTO: BLOOMBERG VIA GETTY IMAGES
+
 Monday is the last day when candidates can file to run for mayor of Chicago—dubbed the “real election” by locals after the midterms. Lori Lightfoot, the incumbent, is expected to wait until the last moment to do so. To participate, hopefuls must present at least 12,500 signatures from registered voters. The most successful traditionally manage many times that. In the sixties Richard J Daley, perhaps the most powerful American mayor, filed 500,000.
 
 Ms Lightfoot, who sees herself as a successor to Harold Washington, the city’s first black mayor, once said she had “the biggest dick in Chicago”. But she faces a tough re-election campaign, having come under fire for her policies on crime and policing, and her supposed neglect of the downtown. She will also be competing with at least six other candidates, including Jesús “Chuy” Garcia, a combative Mexican-American congressman. Chicago was once famous for “machine politics”, but established politicians can no longer mechanically turn out blocks of votes like before. This election is anyone’s game.
@@ -6229,6 +6447,7 @@ Ms Lightfoot, who sees herself as a successor to Harold Washington, the city’s
 ![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap364.jpeg)
 
 PHOTO: HASBRO
+
 Artificial intelligence has already trounced humans at backgammon, chess and Go. Now it can routinely win at Diplomacy, which for some aficionados is a truer marker of game-playing ability. Diplomacy, which sees players scrap for control of a pre-first world war Europe, is a very human pastime. Play demands collaboration but also allows for double-crossing.
 
 In a paper recently published in Science, researchers at Meta—Facebook’s parent company—explain how they created Cicero, a program that could play Diplomacy, and win. (It ranked in the top 10% of players in an online multi-game tournament.) Like all AI game-playing projects, Cicero learnt through reinforcement: making more selective moves as it was rewarded for positive outcomes.
@@ -6290,6 +6509,7 @@ Football World Cup: Brazil scored in the 83rd minute to beat Switzerland 1-0. Th
 ![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap305.jpeg)
 
 PHOTO: AP
+
 Pakistan’s army has long been regarded as wielding more political influence than the country’s hapless politicians. But the appointment of Syed Asim Munir, who takes over from Qamar Javed Bajwa as the chief of the army on Tuesday, looks at least partly driven by party politics. General Munir’s tenure as head of Pakistan’s spy agency was cut short in 2019 after he fell out with Imran Khan, then the prime minister. Mr Khan was himself ousted by Parliament in April and has since set about trying to undermine the government of Shehbaz Sharif, his successor.
 
 Mr Sharif seems to have appointed Mr Munir partly because he sees him as a counterweight to Mr Khan. Yet the army’s reputation among voters has been damaged by Mr Khan’s unproven allegation that military leaders conspired with America to remove him from power. Many soldiers in the army’s lower ranks are quiet supporters of the former prime minister. The new chief will have to work hard to regain the confidence of ordinary soldiers and other Pakistanis.
@@ -6301,6 +6521,7 @@ Mr Sharif seems to have appointed Mr Munir partly because he sees him as a count
 ![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap311.jpeg)
 
 PHOTO: AP
+
 The French president will arrive in Washington, DC on Tuesday evening for his second state visit to America (he was hosted by Donald Trump in 2018) and the first full state visit that President Joe Biden has hosted. Expect much celebration of America and France’s long friendship—both countries like to say they are each other’s oldest ally. Emmanuel Macron will be treated to the works, including a state banquet at the White House.
 
 The war in Ukraine and geopolitical shifts mean that there will be tensions to manage, too. The French and American positions on Russia have converged: both countries firmly support Ukraine while also seeking to avoid escalation and ultimately favouring a diplomatic solution to the conflict. The thorniest immediate issue will be America’s massive subsidies for clean energy and semiconductors. Europe, France included, considers these a breach of international-trade rules and fears for its own industries, battered by soaring energy prices. New problems will test even the oldest of allies.
@@ -6312,6 +6533,7 @@ The war in Ukraine and geopolitical shifts mean that there will be tensions to m
 ![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap310.jpeg)
 
 PHOTO: AP
+
 On Tuesday the World Meteorological Organisation publishes, for the first time, an evaluation of global water resources. The findings will be bleak. At COP27, held in Egypt earlier this month, governments noted the “critical” need for “protecting, conserving and restoring water systems”. There is a growing understanding of the relationship between water scarcity and higher global temperatures, and of the need to manage water supplies in order to adapt to climate change.
 
 Global warming worsens natural disasters that affect the availability of water: droughts are longer and more frequent; storms and rising sea levels contaminate water used for drinking and washing. Climate change is also depleting stocks of freshwater held in glaciers, snow and permafrost. According to the UN, by 2050 1.6bn people will be at risk of floods (up from 1.2bn currently), while 3.2bn may live in water-scarce areas (up from 1.9bn in 2010). And water, or its lack, influences economies, too: in Britain and Europe droughts currently cause around $9bn in losses each year.
@@ -6325,6 +6547,7 @@ Global warming worsens natural disasters that affect the availability of water: 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap308.jpeg)
 
 PHOTO: GETTY IMAGES
+
 For the fiscal year ending September 2022, America’s army fell 15,000 short of its goal of 60,000 new recruits. On Tuesday grandees—including Major General Johnny Davis, who oversees recruitment—will discuss the problem at the Heritage Foundation, a think-tank in Washington. What explains the shortfall? A red-hot job market has increased competition for workers. And the pandemic saw higher obesity rates and worse academic performance, shrinking the pool of eligible recruits.
 
 Fewer want to sign up, anyway. The army says that just 9% of eligible candidates are actually interested in joining, the lowest level for 15 years. America’s chaotic withdrawal from Afghanistan is partly to blame. So is political polarisation: many on the left see America’s army as stuffy and outdated; those on the right accuse it of being too woke. The army is now stepping up outreach in schools and universities and offering bigger signing bonuses. If that fails to do the trick, some reservists may be put on active duty.
@@ -6336,6 +6559,7 @@ Fewer want to sign up, anyway. The army says that just 9% of eligible candidates
 ![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap306.jpeg)
 
 PHOTO: GETTY IMAGES
+
 America and Iran have had no diplomatic relations since 1980. Representatives of the two countries almost never come face-to-face, in any arena. But on Tuesday their football teams will face off at the World Cup in Qatar. To stay in the tournament America must win; Iran needs at least a draw. At their previous (and only) World Cup fixture, in 1998, Iran took the honours 2-1.
 
 The match follows months of anti-government demonstrations in Iran, which America has supported. Before their first game in Qatar, the Iranian squad appeared to stage a protest by standing silent during their national anthem. At the second the players did sing, but many Iranians think they were coerced. And last weekend America’s football federation posted a version of Iran’s flag on social media, minus the logo of the Islamic Republic (it was later deleted). Neither side is likely to acknowledge it publicly, but the resonance of Tuesday’s game will extend far beyond the stadium in Doha.
@@ -6395,6 +6619,7 @@ Football World Cup: America beat Iran 1-0. The goal, by Christian Pulisic, sent 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap317.jpeg)
 
 PHOTO: AP
+
 After years of living under covid lockdowns—or with the threat of them—many people in China have had enough. Over the weekend tens of thousands took to the streets in Beijing, Shanghai and elsewhere, in an unprecedented wave of protests expressing anger with the government. “We don’t want lockdowns, we want freedom”, they chanted.
 
 The government will not grant the freedom of expression that many protesters want. But it hopes to calm some of the anger by loosening restrictions without unleashing a wave of sickness that would cripple the country’s health system. On Tuesday the National Health Commission announced a plan to “accelerate the promotion of covid vaccines for the elderly”. So far only 66% of over-80s have received a booster shot, according to officials, although that is up from 40% earlier this month. That is a practical first step. But for the people who spent the weekend chanting “Down with Xi Jinping”, it may not be enough to mollify their rage.
@@ -6406,6 +6631,7 @@ The government will not grant the freedom of expression that many protesters wan
 ![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap320.jpeg)
 
 PHOTO: AFP
+
 Few countries have enjoyed as smooth an economic recovery from covid-19 as India. In the quarter ending in June, its annual growth surged to 13.5% (though it came from a low base, given the impact of the pandemic in 2021). This resurgence is, in part, why the IMF predicts that India will ultimately grow 7% in 2022, becoming the fifth largest economy in the world and displacing Britain. Growth rates are now normalising somewhat. Data released on Wednesday are likely to reveal a much smaller year-on-year expansion of 6.2% for the quarter ending in September, according to economists surveyed by Bloomberg.
 
 The global economic slowdown is hitting India’s exports; manufacturing activity remains sluggish. Interest-rate rises are also beginning to bite with tightening expected to continue until next year (albeit less aggressively). The cooling economy, however, may not be a bad thing. In addition to reining in inflation, currently at 6.8%, economists believe weaker domestic demand could reduce worrisome fiscal and trade deficits.
@@ -6419,6 +6645,7 @@ The global economic slowdown is hitting India’s exports; manufacturing activit
 ![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap322.jpeg)
 
 PHOTO: GETTY IMAGES
+
 On Wednesday the Democratic Party in America’s House of Representatives, which lost its majority at the midterms, will choose new leaders. Nancy Pelosi, aged 82, has led the caucus with a steely grip for 19 years. Steny Hoyer and Jim Clyburn, who hold the number two and three posts, are 83 and 82 respectively. This octogenarian monopoly on power has frustrated ambitious younger Democratic congressmen: ascending the ranks can mean waiting decades. In 2018, to placate them, Ms Pelosi agreed to cede the top job in 2022.
 
 Her replacement will almost definitely be Hakeem Jeffries. Aged 52, he is a pragmatic liberal in Ms Pelosi’s mould. Katherine Clark, 59, and Pete Aguilar, 43, will serve as deputies. This outcome—orchestrated by Ms Pelosi, who wanted an orderly transition—underlines the sway the outgoing speaker has over her colleagues. The Republicans, though, have been squabbling. Hardline conservatives are refusing to support Kevin McCarthy, the party’s newly-elected leader in the House—a preview of the fractiousness expected when Republicans control the chamber next year.
@@ -6430,6 +6657,7 @@ Her replacement will almost definitely be Hakeem Jeffries. Aged 52, he is a prag
 ![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap316.jpeg)
 
 PHOTO: GETTY IMAGES
+
 Much of Europe is shrouded in fog—and the outlook for inflation is similarly obscure. In America, inflation is slowly on the way down from its peak. But in the euro zone, analysts are still wondering how much higher it might climb. Wednesday’s flash release of the HICP—the bloc’s consumer-price index—will give a hint of whether the worst is behind the European Central Bank. That will help it decide how much to increase interest rates on December 15th.
 
 Early estimates from Germany and Spain for November suggest that headline inflation may be past its peak already. Annual inflation in Spain was recorded at 6.8% (down from 7.3% in October). In Germany, the figure has come down by 0.4 percentage points to 10%. In German states that reported early, the headline figure has come down too. But underlying or “core” inflation, which excludes prices for energy and food and is a better gauge of future inflation pressure, remains stubbornly high in both Germany and Spain. Even when the peak is clear, the way down looks foggy.
@@ -6441,6 +6669,7 @@ Early estimates from Germany and Spain for November suggest that headline inflat
 ![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap323.jpeg)
 
 PHOTO: GETTY IMAGES
+
 On Wednesday construction will begin on a Barbadian project to commemorate the British transatlantic slave trade. The Barbados Heritage District, designed by David Adjaye, a British-Ghanaian architect, will house a museum and research centre—as well as a memorial to the approximately 400,000 people trafficked to Barbados in the 1600s and 1700s. The complex is next to a site where some of their remains are buried. The first ground will be broken one year after the island ditched the British monarch as its head of state.
 
 Attitudes towards culture, identity and the British monarchy are changing across the Caribbean. King Charles III is still head of state of seven countries in the region, but republican sentiment is growing. Jamaica’s government wants the country to become a parliamentary republic. Smaller islands such as Antigua and Barbuda have said the same. The death of Queen Elizabeth II, who was hugely popular abroad as at home, may only hasten the separation.
@@ -6502,6 +6731,7 @@ Football World Cup: Argentina advanced to the knockout stage after beating Polan
 ![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap335.jpeg)
 
 PHOTO: AP/GETTY IMAGES
+
 Charles Michel, the president of the European Council, will meet Xi Jinping, China’s president, in Beijing on Thursday. After years of pandemic-imposed isolation, China is keen to reset its chilly relationship with Europe. Germany’s chancellor, Olaf Scholz, was invited to visit in November, and France’s president, Emmanuel Macron, is expected early next year.
 
 But the timing for Mr Michel, who chairs summits of EU leaders, is especially tricky. In the past week demonstrations against draconian covid restrictions have gripped China. Police are intimidating and detaining protesters. Mr Michel is under pressure to comment, but must choose his words carefully—China needs little excuse to blame “foreign forces” for inciting domestic unrest.
@@ -6515,6 +6745,7 @@ Ukraine will also be on the agenda. Mr Michel and other European leaders want Mr
 ![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap336.jpeg)
 
 PHOTO: DAVE SIMONDS
+
 Spain is not the easiest place to do business. It has good infrastructure and little petty corruption. But its legal traditions—in which it can seem as if everything not expressly permitted is forbidden—and unwieldy bureaucracy can make starting and growing a company harder than it should be.
 
 The government hopes that a new law will change that, at least for startups. The bill, which should pass through the lower house of parliament on Thursday, aims to lighten the load for founders by offering lower taxes, more favourable tax treatment for stock options and other benefits for companies that are less than five years old and that generate less than €10m ($10m) in annual revenue.
@@ -6528,6 +6759,7 @@ The law should make life easier for “digital nomads” who fancy a move to Spa
 ![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap332.jpeg)
 
 PHOTO: AFP
+
 On Thursday voters head to the polls to elect a local government in Gujarat, a state of 70m people in western India. The result is practically guaranteed. The Bharatiya Janata Party—which also rules the country—has won the last six elections in Gujarat. Still, the party is not taking any chances. Narendra Modi, the BJP prime minister who rose to national prominence as Gujarat’s leader, has attended dozens of rallies in the run-up to the election.
 
 But watch the battle for second place. That spot has usually gone to Congress, India’s hapless national opposition party. But this time it faces competition from Aam Aadmi Party, a newish populist group. The AAP recently beat the BJP and Congress in elections in Punjab, a northern state. In Gujarat it is running on a similar campaign, promising free education and electricity. Another strong showing would establish the AAP as a national force, and perhaps the strongest challenger to the BJP ahead of India’s next general election in 2024.
@@ -6539,6 +6771,7 @@ But watch the battle for second place. That spot has usually gone to Congress, I
 ![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap333.jpeg)
 
 PHOTO: GETTY IMAGES
+
 New York and Singapore are the world’s most expensive cities, according to the latest Worldwide Cost of Living Survey from EIU, The Economist’s sister company. The survey, which compares the prices of more than 200 products and services in 173 cities, finds that living costs are rising at their fastest clip for at least 20 years. Prices in major cities are up by an average of 8.1%, in local-currency terms, over the past year.
 
 Russia’s war in Ukraine is one cause, leading to higher food and energy prices. Supply-chain problems caused by covid-19 restrictions in China are another. Though six of the top ten cities that have moved the most up the rankings are in America, the two biggest climbers are Russian. Western sanctions have driven up prices such that St Petersburg has risen 70 places since 2021, while Moscow has shot up 88 slots, to 37th place.
@@ -6552,6 +6785,7 @@ Russia’s war in Ukraine is one cause, leading to higher food and energy prices
 ![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap329.jpeg)
 
 PHOTO: GETTY IMAGES
+
 Last year 80% of international art sales took place in America, Britain, China, Hong Kong or Taiwan. Germany, by contrast, does not have a reputation as an art-sales hotspot. But one lot on Thursday at Grisebach, one of the leading auction houses in Berlin, will command attention around the world.
 
 Among the pieces going under the hammer is “Selbstbildnis gelb-rosa”—“Self-Portrait Yellow-Pink”—by Max Beckmann, a German Expressionist. The painting is expected to go for between €20m-€30m ($21m-$31m), which would make it the priciest piece ever sold at auction in Germany.
@@ -6610,6 +6844,7 @@ Football World Cup: Japan stunned Spain with a 2-1 win. Both countries advanced 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap342.jpg)
 
 PHOTO: AP
+
 On Friday the closing arguments in a criminal trial of two units of the Trump Organisation are expected to conclude. The real-estate company owned by Donald Trump, a former president, is charged with crimes including conspiracy, tax fraud and falsifying business records. Jurors heard Allen Weisselberg, the company’s chief financial officer, admit to concealing $1.76m of “bonus” income, including payment of rent for an apartment and private-school tuition. Donald Bender, who managed the organisation’s taxes for 35 years, said that he “probably would have had a heart attack” had he known about the payments.
 
 Prosecutors allege that the company engaged in a long-running tax-avoidance scheme. The defence maintains that neither Mr Trump (who is not charged with wrongdoing) or his family knew, and that the company did not benefit from it. But, if convicted on all counts, the Trump Organisation could face $1.6m in fines. Separately, New York State’s attorney-general has filed a lawsuit against Mr Trump and his family, which accuses them of “staggering fraud” and seeks damages of at least $250m. They deny the charges. That case is expected to go to trial next year, as Mr Trump’s presidential campaign gets going.
@@ -6621,6 +6856,7 @@ Prosecutors allege that the company engaged in a long-running tax-avoidance sche
 ![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap338.jpg)
 
 PHOTO: AP
+
 On Friday a group of British lawmakers will conclude a visit to Taiwan designed in part to assess the effectiveness (or not) of Britain’s foreign policy in the region. They met Tsai Ing-wen, the president, to affirm Britain’s “strong cultural and trading ties” with the self-governing island that China regards as part of its territory.
 
 The British delegation is the latest in a string of international guests that Ms Tsai has welcomed since a visit by Nancy Pelosi, the speaker of America’s House of Representatives, enraged China in August. Ms Tsai has been keen to demonstrate her strength as a leader who can garner the global support necessary to fend off an increasingly bellicose China. But after her party’s drubbing in local elections last week she resigned as party leader and will cede some of her platform to her successor. British politicians are increasingly hawkish on China. But they may find a Taiwanese leader who is, at least for now, deflated rather than defiant.
@@ -6632,6 +6868,7 @@ The British delegation is the latest in a string of international guests that Ms
 ![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap339.jpg)
 
 PHOTO: ALAMY
+
 Jameel Ahmad, the governor of Pakistan’s central bank, sounded confident last week when he promised that Pakistan would repay a $1bn international bond by Friday—three days before it matures on December 5th. If that deadline is met, it will send a signal to international lenders that the country retains some degree of fiscal stability.
 
 It needs to: Pakistan’s economy is in tatters. The lingering effects of the covid pandemic, rocketing energy prices and the previous government’s economic mismanagement were compounded over the summer when an unusually strong monsoon deluged the country, causing more than $30bn of damage and financial losses. Annual inflation was at 23.8% in November. The government is trying to persuade the IMF to release more bail-out funds. But the IMF wants proof that officials are making progress on a plan to rebuild after the floods. Pakistan will need an awful lot more than confidence to get out of its current predicament.
@@ -6643,6 +6880,7 @@ It needs to: Pakistan’s economy is in tatters. The lingering effects of the co
 ![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap340_0.jpg)
 
 PHOTO: GETTY IMAGES
+
 This week “The Nativity” by Piero della Francesca, one of the most popular paintings in London’s National Gallery, returns to public view after three years’ absence. Painted around 1480, this Christmas-card favourite shows an angelic boy-band serenading the infant Jesus and his blue-robed mother against a luminous Tuscan landscape. Rugged shepherds and farmyard beasts complete the familiar, charming scene. Yet scholars have long lamented the sorry state of the oil-painted panel, which was purchased by the gallery in 1874. Much of the paint had faded and the figures lacked shadows. Plus the bald, sandy foreground led some experts to declare the painting unfinished.
 
 The three-year restoration project, led by Jill Dunkerton, the gallery’s senior restorer, has healed the wounds inflicted by clumsy 19th-century cleaners. It has also confirmed that the painting is complete. Piero envisaged that earthy Tuscan hilltop as bare and shadowless: an uncluttered stage to better show the brilliant mystic light of Jesus’s birth. Art-lovers can now get even more enjoyment from Piero’s blend of the miraculous and the mundane.
@@ -6654,6 +6892,7 @@ The three-year restoration project, led by Jill Dunkerton, the gallery’s senio
 ![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap343.jpg)
 
 PHOTO: AP
+
 The first round of negotiations over a global plastic-pollution treaty will conclude in Uruguay on Friday. In March 175 countries endorsed the idea of a UN accord governing plastic waste, which has been found everywhere from the deepest part of the ocean to the tip of Mount Everest. Delegates gathered this week in Punta del Este, a beach town, to decide what the accord should say.
 
 Some parties—including Britain, Canada, the EU and Switzerland—want the final treaty to be binding, and to set a goal of stopping plastic pollution by 2040. America agrees with the aim but favours voluntary action and doesn’t want new curbs on production. Some 19% of the world’s plastic is made in North America, 31% in China.
@@ -6733,6 +6972,7 @@ fumuguan, a Chinese word meaning “father-mother official” and often used to 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap357.jpg)
 
 PHOTO: AFP
+
 On Saturday Italy’s prime minister, Giorgia Meloni, is due to address an annual conference about security and co-operation in the Mediterranean region—a touchy subject for her government. In October Italy refused to accept a ship carrying 234 migrants who had been rescued off the coast of Libya. France ultimately allowed it to dock after a bitter tussle with Ms Meloni. Calling her government’s stance “incomprehensible and unacceptable”, the French suspended an agreement to settle 3,500 asylum-seekers currently in Italy.
 
 That deal, struck in June by 18 EU members, was already falling short. Under the pact northern European countries agreed to accept 8,000 asylum-seekers from their southern neighbours within a year. But by mid-November only 117 had been relocated. Expect Ms Meloni to voice the complaint of many Italians—that Italy is being left to deal with Mediterranean migration by itself.
@@ -6744,6 +6984,7 @@ That deal, struck in June by 18 EU members, was already falling short. Under the
 ![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap349.jpg)
 
 PHOTO: GETTY IMAGES
+
 It has taken 48 matches to trim the 32 teams at the football World Cup to 16. Now as the tournament enters the knockout stages on Saturday, it will take just 15 games to reveal a champion. Several fancied teams have made strong starts and look like contenders. The holders, France, should ease past Poland. Likewise, Lionel Messi’s Argentina against Australia. England, too, should have enough attacking prowess to beat Senegal. And Brazil remain favourites to end their 20-year trophy drought.
 
 But there is also plenty of scope for upsets. America will be energetic opponents for the Netherlands, who were not properly tested in a weak group. Morocco, playing in their first knockout match since 1986 and unbeaten so far, will relish the chance to take on Spain. And Japan, fresh from shocking Germany and Spain, will be looking for another European scalp in Croatia, the beaten finalists in 2018.
@@ -6755,6 +6996,7 @@ But there is also plenty of scope for upsets. America will be energetic opponent
 ![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap358.jpg)
 
 PHOTO: AP
+
 Saturday is America’s first Tribal Museums Day. But the celebration takes place amid tension over sacred land in Arizona. Chi’chil Bildagoteel, which measures 6.7 square miles (17.4 sq km), is owned by the federal government. It is also an important religious site for members of the Apache tribe. The Trump administration arranged to transfer it to Rio Tinto and BHP, two multinational mining firms, in a land swap; the copper mine planned for the site could become America’s largest.
 
 Tribal leaders, who gathered this week in Arizona for the Sacred Sites Summit, say that protecting particular sites is a “holy war”. Last year Apache representatives sued the federal government, claiming that losing Chi’chil Bildagoteel would curtail their religious freedom. An appeals court upheld a district-court ruling against them, but in November it agreed to rehear the case. A win for the Apache could help protect other sacred lands—and ensure that they remain part of a living culture, not one relegated to museums alone.
@@ -6766,6 +7008,7 @@ Tribal leaders, who gathered this week in Arizona for the Sacred Sites Summit, s
 ![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap350.jpg)
 
 PHOTO: GETTY IMAGES
+
 Its opening is being called Sydney’s biggest cultural development since the Opera House was completed nearly 50 years ago. But unlike that landmark, the Sydney Modern, a gallery which opens on Saturday, does not disrupt the skyline: it hunkers into the harbourside, all glass walls and grass-covered roof. The project, costing A$344m ($234m), aims instead to make a mark with its exhibitions. It nearly doubles the floor space of the adjacent Art Gallery of New South Wales and features work by more than 900 artists, including indigenous Australians.
 
 Sydneysiders blush at how their city gets outshone culturally by Melbourne, known for its thriving arts scene. The new gallery aspires to compete with London’s Tate Modern or New York’s Guggenheim, said Ben Franklin, a minister for arts and tourism. Thousands of Sydneysiders have registered to visit. The gallery’s creators will hope for global attention too.
@@ -6777,6 +7020,7 @@ Sydneysiders blush at how their city gets outshone culturally by Melbourne, know
 ![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap346.jpg)
 
 PHOTO: GETTY IMAGES
+
 Alexie has joined two protests in her life. Both times, the Shanghai coffee-shop owner (whose name we have changed) chanted slogans against China’s government—a good way to risk a jail sentence.
 
 In 2019, to express her own discontent with China’s growing authoritarianism, she travelled to Hong Kong, where she marched with millions of others calling for democratic rule in the territory. She was unable to tell anyone who she was and what she was doing there. “I felt alone, but paradoxically, I had never felt so close to the people around me,” she says.
@@ -6888,6 +7132,7 @@ Football World Cup: After a group stage punctuated by a series of extraordinary 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap364.jpg)
 
 PHOTO: AP
+
 On Monday, the EU ban on seaborne crude oil from Russia comes into effect. At the same time, another complicated scheme to manipulate the energy markets has been agreed, designed to slash the flow of petrodollars fuelling Russia’s war in Ukraine while avoiding a global oil-supply shock.
 
 European (including British) suppliers of tankers and insurance will be banned from providing services to vessels ferrying crude oil from Russia to non-EU countries. To ensure the ban does not decimate Russian exports and spark an oil-price shock, America proposed that such services could be made available to non-EU countries so long as they purchased seaborne Russian oil below an agreed price cap. After months of wrangling, on Friday the G7 club of rich countries, Australia and the EU agreed to a cap of $60 a barrel. But with Russia refusing to abide by any cap, it is too soon for the West to declare victory.
@@ -6899,6 +7144,7 @@ European (including British) suppliers of tankers and insurance will be banned f
 ![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap365.jpg)
 
 PHOTO: GETTY IMAGES
+
 Europe has long urged America to do more in the fight against climate change. Now that it has, the EU is not happy. The bloc fears that President Joe Biden is following an “America First”, rather than a climate-first, approach. The Inflation Reduction Act, Mr Biden’s flagship policy, offers green incentives worth $400bn, but includes protectionist subsidies on key products like electric cars. On Monday a meeting in Washington between the EU and the Biden administration could offer hints on how the pair hope to resolve the dispute.
 
 The text of the law says that exceptions can be applied only to countries with which the United States has a free-trade agreement; America has no such deal with the EU. On Sunday the European Commission’s president, Ursula von der Leyen, warned that the bloc must “adapt” its own state-aid rules in the face of America’s green subsidies. Not a good sign for the meeting.
@@ -6910,6 +7156,7 @@ The text of the law says that exceptions can be applied only to countries with w
 
 
 PHOTO: ![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap361.jpg)REUTERS
+
 Four years after sidestepping the crux of a dispute between a gay couple and a Christian baker who refused to make them a wedding cake, America’s Supreme Court is taking another crack at the subject. On Monday the justices will examine the case of 303 Creative v Elenis. The question is: does the First Amendment protect a web designer who says her beliefs about marriage preclude her from creating websites for gay weddings?
 
 Lorie Smith, the designer, says “sacred freedoms of thought and mind” bar the state of Colorado from forcing her to create messages that clash with her beliefs. The state counters that the law only requires Ms Smith to supply gay customers with the same services she offers straight ones. She could insist on selling only websites containing “biblical passages stating that marriage is a union of one man and one woman” as long as she sells them “to everyone”. Tricky questions at the heart of America’s culture wars await: if a business can refuse to carry out work involving same-sex weddings, why not interracial ones, too?
@@ -6921,6 +7168,7 @@ Lorie Smith, the designer, says “sacred freedoms of thought and mind” bar th
 ![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap360.jpg)
 
 PHOTO: GETTY IMAGES
+
 On Monday China’s central bank will free up 500bn yuan ($72bn) for lending within the banking system, after announcing a 25-basis-point cut to the required reserve ratio, the amount of money banks are required to hold as reserves. In recent years the People’s Bank of China has routinely cut RRR to encourage banks to lend more. The hope is that there will be takers for the extra credit, but demand has been lacklustre in China’s decelerating economy. Covid restrictions have caused companies great uncertainty. Many planned investments in factories or new shops have been axed. In October new loans declined to 615bn yuan, 211bn yuan less than a year ago.
 
 That is worrying for the government, which in its quest for growth wants companies to expand operations and build factories. Until China fixes its covid problem, RRR cuts might amount to little more than pushing on a string.
@@ -6934,6 +7182,7 @@ That is worrying for the government, which in its quest for growth wants compani
 ![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap363.jpg)
 
 PHOTO: ALAMY
+
 At this time of year, as others are trimming Christmas trees, a clutch of dictionary publishers ponder their choice for word of the year. Oxford Dictionaries will publish their choice on Monday, having chosen three finalists which, for the first time, were put to a public vote.
 
 One is “goblin mode”, a state in which someone indulges their laziest or most self-indulgent habits—perhaps suitable as a symbol for the first proper post-lockdown year. Another is “#IStandWith”, a hashtag used frequently in solidarity on Twitter but whose status as a word seems questionable. The third is the “metaverse”, which Meta (owner of Facebook) and other companies have poured fortunes into developing—but which few people seem to be actually spending time in. It has been a strange year: war, economic upheaval and a pandemic hangover are hard to sum up in a single dictionary entry. Perhaps 2023 will bring better news, and more inspiring words.
@@ -6991,6 +7240,7 @@ Football World Cup: After a group stage full of extraordinary upsets, the first 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap309.jpg)
 
 PHOTO: REUTERS
+
 After election day in early November, most American voters can relax. Not in Georgia, which requires a separate run-off election if no candidate secures an outright majority. In January 2021 the entire country watched Georgia’s unusual contest when its run-off decided control of the Senate.
 
 On Tuesday Georgia’s race will again conclude the national Senate battle. But this time there is less pressure: Democrats are safe in their control of the upper chamber of Congress. But they will be glad to have an extra seat. In Georgia Raphael Warnock, the Democratic incumbent, who led the first round by one percentage point, faces Herschel Walker, the gaffe-prone Republican nominee.
@@ -7004,6 +7254,7 @@ Other Republicans running in Georgia, such as Brian Kemp, the incumbent governor
 ![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap305.jpg)
 
 PHOTO: GETTY IMAGES
+
 The EU has struggled for a decade to respond to Viktor Orban’s increasingly autocratic, corrupt and scofflaw government in Hungary. It now has the opportunity to do something about it. Last week the European Commission recommended that €13.3bn ($14bn) of aid to Hungary go forward only if the country carries out reforms. On Tuesday the council of EU countries’ finance ministers, known as Ecofin, will vote on that course of action.
 
 Ministers are expected to allow €5.8bn in grants from the EU’s covid-recovery fund to go forward, conditional on Hungary implementing 27 anti-corruption reforms. But Hungary’s prime minister may have enough allies to prevent Ecofin from freezing the €7.5bn earmarked for his country in the EU’s regular budget. He has also been fighting back, by blocking a joint aid package for Ukraine and a proposed minimum tax on multinational companies. So despite years of tough talk, the EU may end up letting Hungary get away with embezzling European money.
@@ -7015,6 +7266,7 @@ Ministers are expected to allow €5.8bn in grants from the EU’s covid-recover
 ![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap307.jpg)
 
 PHOTO: GETTY IMAGES
+
 Three years ago India’s parliament passed the Citizenship Amendment Act, which made it easier for migrants of certain religions coming from neighbouring countries to become Indian citizens. The glaring omission of Muslims from that list triggered deadly protests that went on for months. The demonstrations were forced to a halt by the pandemic lockdown, but they succeeded in stopping the governing Hindu-nationalist Bharatiya Janata Party from implementing the law.
 
 Now the contentious legislation looms large again. Earlier this year Amit Shah, the home minister, insisted that “CAA is and will be a reality”. India’s Supreme Court could yet foil those plans. After months of delay, on Tuesday it begins hearing more than 200 petitions challenging the law, many of which argue that the CAA violates the country’s secular constitution. India’s Muslims, who worry that the law could pave the way to threatening their own citizenship, won’t expect the court to take their side. Judges have recently bent to the will of India’s heavy-handed government.
@@ -7026,6 +7278,7 @@ Now the contentious legislation looms large again. Earlier this year Amit Shah, 
 ![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap303.jpg)
 
 PHOTO: GETTY IMAGES
+
 On Tuesday the Biden administration will hold the first lease auction for offshore wind development on America’s west coast. The five sites up for grabs along the Californian coastline could propel America closer to Joe Biden’s target of 30 gigawatts of offshore wind energy by 2030. Because the sites are in deep waters, they will also be home to America’s first floating turbines.
 
 Investors continue to face headwinds. The Inflation Reduction Act, the most ambitious climate legislation America has ever passed, includes tax breaks for clean-energy technologies. But an onerous, often litigious, permitting process means government agencies can take five years to approve a solar farm. Wind projects and transmission lines often take longer. Democrats and Republicans agree the planning process is lousy, but lawmakers spurned a reform bill championed by Joe Manchin, a senator for West Virginia. If Congress does not get its act together, America’s green dreams may be no more than that.
@@ -7039,6 +7292,7 @@ Investors continue to face headwinds. The Inflation Reduction Act, the most ambi
 ![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap308.jpg)
 
 PHOTO: GETTY IMAGES
+
 In New York, show business is serious business. Broadway’s 41 theatres contributed an estimated $15bn to the city’s economy during the 2018-19 season. The industry employed almost 97,000 people, from actors and producers to front-of-house staff, costume-makers and specialist dry-cleaners. In March 2020 the city shut its theatres as part of its coronavirus lockdown measures. Thousands of people were cut off from their source of income.
 
 “Broadway Rising”, a documentary released in America this week, explores what happened next. Some staff were among the earliest covid cases; performers started teaching their craft online. Many left the industry entirely.
