@@ -6953,3 +6953,112 @@ Our baristas will serve you a new question each day this week. On Friday your ch
 > It is in the character of growth that we should learn from both pleasant and unpleasant experiences.
 >
 > Nelson Mandela
+
+
+
+### December 6, 2022
+
+#### The world in brief December 6, 2022
+
+Catch up quickly on the global stories that matter
+
+Updated 5 hours ago (23:21 GMT / 07:21 Hong Kong)
+
+Russia said it foiled Ukrainian drone attacks against two air bases deep inside its territory, but that three Russian service members died in the resulting explosions. Meanwhile, Russia intensified its attacks on Ukraine with a barrage of missiles, killing at least two people. Ukrainians sheltered in underground train stations as air sirens blared across major cities, including the capital, Kyiv.
+
+China began slowly distancing itself from its zero-covid dictum, following unprecedented protests against the government’s once unyielding policies. The long-locked-down city of Urumqi in Xinjiang region, where the unrest began, started reopening malls and restaurants on Monday. Some other big cities will no longer require a negative covid test to board public transport. Chinese stockmarkets cheered the hopeful signals.
+
+South Africa’s ruling party said it would block attempts to impeach President Cyril Ramaphosa after an independent panel found that he probably abused the power of his office. Mr Ramaphosa asked that the panel’s report be “declared unlawful and set aside” by the country’s top court. He stands accused of violating anti-corruption laws concerning the concealment and subsequent theft of at least $4m from his cattle farm.
+
+Most justices on America’s Supreme Court appeared sympathetic to a Christian web designer’s argument that having to make a gay couple’s wedding website would violate her free-speech rights by forcing her to create work at odds with her religion. The court’s conservative majority seems likely to create some exceptions for business owners from laws requiring equal treatment of all customers on the basis of this case. A decision is expected next summer.
+
+Circle, a crypto company that claims to run the world’s second-largest stablecoin, abandoned plans to go public as the fallout from FTX’s collapse continued to roil markets. Circle had signed a $9bn deal with Concord, a blank cheque company, in July 2021. Many publicly-listed crypto companies have seen their shares tumble this year—the value of Coinbase, an American exchange, fell by around 80%.
+
+Britain’s Labour Party set out a plan for “the biggest ever transfer of power” and wealth away from the government in Westminster and for sharing it across the country. The opposition party’s proposals include scrapping the House of Lords, relocating 50,000 civil servants to outside London and giving devolved governments and local authorities more powers, including more say over spending.
+
+Football World Cup: After a group stage full of extraordinary upsets, the first matches of the knockout round did not provide any shocks. Brazil advanced to its eighth consecutive quarter-final after drubbing South Korea. England beat Senegal and France, inspired by Kylian Mbappé, cruised past Poland. Meanwhile, on Monday the leader of the United Arab Emirates visited tournament hosts Qatar for the first time since beginning a boycott of Doha in 2017.
+
+
+
+#### Fact of the day: 
+
+**22%**, the average spike in opioid-related deaths in American counties that opened syringe exchanges between 2008 and 2016. 
+
+
+
+#### Georgia closes America’s Senate race
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap309.jpg)
+
+PHOTO: REUTERS
+After election day in early November, most American voters can relax. Not in Georgia, which requires a separate run-off election if no candidate secures an outright majority. In January 2021 the entire country watched Georgia’s unusual contest when its run-off decided control of the Senate.
+
+On Tuesday Georgia’s race will again conclude the national Senate battle. But this time there is less pressure: Democrats are safe in their control of the upper chamber of Congress. But they will be glad to have an extra seat. In Georgia Raphael Warnock, the Democratic incumbent, who led the first round by one percentage point, faces Herschel Walker, the gaffe-prone Republican nominee.
+
+Other Republicans running in Georgia, such as Brian Kemp, the incumbent governor, sailed to an easy victory in November. But Mr Walker, a former football star who has not managed to outrun his personal scandals, may fall flat now that Republicans have no hope of retaking the Senate. Polls show Mr Warnock enjoying a slight lead.
+
+
+
+#### The EU’s moment of truth with Hungary
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap305.jpg)
+
+PHOTO: GETTY IMAGES
+The EU has struggled for a decade to respond to Viktor Orban’s increasingly autocratic, corrupt and scofflaw government in Hungary. It now has the opportunity to do something about it. Last week the European Commission recommended that €13.3bn ($14bn) of aid to Hungary go forward only if the country carries out reforms. On Tuesday the council of EU countries’ finance ministers, known as Ecofin, will vote on that course of action.
+
+Ministers are expected to allow €5.8bn in grants from the EU’s covid-recovery fund to go forward, conditional on Hungary implementing 27 anti-corruption reforms. But Hungary’s prime minister may have enough allies to prevent Ecofin from freezing the €7.5bn earmarked for his country in the EU’s regular budget. He has also been fighting back, by blocking a joint aid package for Ukraine and a proposed minimum tax on multinational companies. So despite years of tough talk, the EU may end up letting Hungary get away with embezzling European money.
+
+
+
+#### India’s controversial citizenship law faces a test
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap307.jpg)
+
+PHOTO: GETTY IMAGES
+Three years ago India’s parliament passed the Citizenship Amendment Act, which made it easier for migrants of certain religions coming from neighbouring countries to become Indian citizens. The glaring omission of Muslims from that list triggered deadly protests that went on for months. The demonstrations were forced to a halt by the pandemic lockdown, but they succeeded in stopping the governing Hindu-nationalist Bharatiya Janata Party from implementing the law.
+
+Now the contentious legislation looms large again. Earlier this year Amit Shah, the home minister, insisted that “CAA is and will be a reality”. India’s Supreme Court could yet foil those plans. After months of delay, on Tuesday it begins hearing more than 200 petitions challenging the law, many of which argue that the CAA violates the country’s secular constitution. India’s Muslims, who worry that the law could pave the way to threatening their own citizenship, won’t expect the court to take their side. Judges have recently bent to the will of India’s heavy-handed government.
+
+
+
+#### Can America go green fast enough?
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap303.jpg)
+
+PHOTO: GETTY IMAGES
+On Tuesday the Biden administration will hold the first lease auction for offshore wind development on America’s west coast. The five sites up for grabs along the Californian coastline could propel America closer to Joe Biden’s target of 30 gigawatts of offshore wind energy by 2030. Because the sites are in deep waters, they will also be home to America’s first floating turbines.
+
+Investors continue to face headwinds. The Inflation Reduction Act, the most ambitious climate legislation America has ever passed, includes tax breaks for clean-energy technologies. But an onerous, often litigious, permitting process means government agencies can take five years to approve a solar farm. Wind projects and transmission lines often take longer. Democrats and Republicans agree the planning process is lousy, but lawmakers spurned a reform bill championed by Joe Manchin, a senator for West Virginia. If Congress does not get its act together, America’s green dreams may be no more than that.
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221210_DAC080.jpg)
+
+
+
+#### The show struggles to go on
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap308.jpg)
+
+PHOTO: GETTY IMAGES
+In New York, show business is serious business. Broadway’s 41 theatres contributed an estimated $15bn to the city’s economy during the 2018-19 season. The industry employed almost 97,000 people, from actors and producers to front-of-house staff, costume-makers and specialist dry-cleaners. In March 2020 the city shut its theatres as part of its coronavirus lockdown measures. Thousands of people were cut off from their source of income.
+
+“Broadway Rising”, a documentary released in America this week, explores what happened next. Some staff were among the earliest covid cases; performers started teaching their craft online. Many left the industry entirely.
+
+Broadway has not bounced back yet: this summer performances of “Moulin Rouge!” had to be cancelled after a covid outbreak among the cast and crew. Audiences have been slow to return, too. The documentary considers who will suffer if the show does not, in fact, go on.
+
+
+
+#### Daily quiz
+
+![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_37_34.jpeg)
+
+Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
+
+**Tuesday:** Which 1977 musical, starring Liza Minnelli and Robert de Niro, was directed by Martin Scorsese?
+
+**Monday:** Which fighter jet is manufactured by the French group Dassault?
+
+
+
+> Without courage, wisdom bears no fruit
+>
+> Baltasar Gracian
