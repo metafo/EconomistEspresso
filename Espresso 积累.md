@@ -7316,3 +7316,122 @@ Our baristas will serve you a new question each day this week. On Friday your ch
 > Without courage, wisdom bears no fruit
 >
 > Baltasar Gracian
+
+
+
+### December 7, 2022
+
+#### The world in brief December 7, 2022
+
+
+Catch up quickly on the global stories that matter
+
+Updated 4 hours ago 
+
+A jury in Manhattan convicted Donald Trump’s real-estate company of tax fraud. The Trump Organisation was found guilty of paying employees off the books to dodge taxes, and could face fines of $1.6m. Separately, the House committee investigating the January 6th attack on America’s Capitol plans to make “some” criminal referrals to the Department of Justice, according to the committee’s chairman. He said the targets and substance of the referrals, which do not carry legal weight, are not yet finalised.
+
+A drone attack on a Russian airfield in Kursk, around 100km from the Ukrainian border, set a storage tank in a nearby oil facility on fire, according to the region’s governor. Kyiv has not claimed responsibility for the strike, which followed attacks on two other Russian airbases on Monday. Meanwhile Russia’s defence minister, Sergei Shoigu, accused Ukraine of “nuclear terrorism” for shelling the Zaporizhia nuclear power plant (Ukraine denies shelling it).
+
+Cristina Fernández de Kirchner, Argentina’s vice-president, was sentenced to six years’ imprisonment and banned from holding public office on corruption charges. But she is unlikely to land in jail anytime soon: her job gives her immunity and she will surely appeal against the verdict. Ms Fernández was found guilty of abusing her authority while president from 2007 to 2015 to steer inflated public-works contracts to a friend.
+
+Polls closed in Georgia’s run-off election for senator. Raphael Warnock, the Democratic incumbent, was the narrow favourite over Herschel Walker, a gaffe-prone Republican. Democrats will keep control of America’s Senate regardless of the outcome, lowering the stakes somewhat. Even so, 1.89m people voted early, breaking single-day voting records, and the race was the country’s most expensive this year.
+
+Hungary vetoed an EU aid package worth €18bn ($18.8bn) for Ukraine. In response member states delayed a decision about whether to disburse €5.8bn in pandemic-recovery funds to Hungary. Fuelling the stand-off are EU demands that Hungary strengthen the rule of law before it gets any more money. EU finance ministers may meet again later this month in hopes of resolving the disagreement.
+
+Latvia withdrew the broadcasting licence of TV Rain, an exiled Russian news channel that had been reporting from its capital, Riga. Latvia’s media regulator accused the channel of threatening the country’s national security and social order. TV Rain has also attracted criticism from Latvian politicians for sticking its nose into local politics. But those grumbles are misplaced: countries should welcome offshore media outlets that pump real news back into Russia.
+
+Football World Cup: underdogs Morocco became the first Arab team ever to reach the tournament’s quarter-finals, after beating Spain in a penalty shoot-out. Portugal did not start Cristiano Ronaldo in its 6-1 victory over Switzerland amid reports of a falling out between Ronaldo and Portugal’s coach, Fernando Santos.
+
+
+
+#### Fact of the day: 
+
+**80%**, the share of Chinese travelling abroad for the first time who visit a casino. 
+
+
+
+#### The EU’s economy starts to shiver
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap319.jpg)
+
+PHOTO: DPA
+
+Could Vladimir Putin’s efforts to hurt the European economy soon start to bite? On Wednesday detailed GDP figures will give further insights into the EU’s economic condition. In the third quarter of 2022, GDP grew by 0.2%, compared with the second. Not great, but no recession either. But after a temperate economic autumn, a long winter may be around the corner. Incoming data point to a looming recession. Retail sales in October were down; sentiment indicators for manufacturing and construction remain depressed. Most worrying, the whole services sector is weakening, with the steepest fall in activity since February 2021.
+
+The one bright spot is the labour market. Businesses expect to hire more workers and unemployment remains very low. That, at least, sends a positive signal: the EU’s economy may be frail, but businesses seem to not expect that weakness to last.
+
+
+
+#### Who can regulate federal elections in America?
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap317.jpg)
+
+PHOTO: REUTERS
+
+On Wednesday the Supreme Court considers a novel idea that could upend the way America conducts elections. According to proponents of the controversial “independent state legislature theory”, state lawmakers should have near-absolute authority (limited only by Congress) to regulate federal elections—from drawing districts to setting voting hours. Currently state courts can weigh in on, and block, such rules.
+
+Moore v Harper arises from a struggle over a strikingly gerrymandered congressional map drawn by Republicans in North Carolina in 2021. When the state’s top court ruled that the map violated North Carolina’s constitution, Republican state lawmakers asked the Supreme Court to step in.
+
+They contend that the federal constitution empowers only state legislatures to regulate elections for Congress, with no role for state courts. Democratic state officials and voting-rights groups dismiss this position as “an intolerable affront” to federalism. It “clashes irreconcilably”, they say, with “principles on which our republic was built”.
+
+
+
+#### Britain’s workforce has fallen ill
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap315.jpg)
+
+PHOTO: EPA
+
+A report released on Wednesday by the Institute for Public Policy Research, a think-tank, makes worrying reading. Britain is the only G7 country whose labour force has not yet returned to its pre-pandemic size. Some 2.5m Britons in its 36m workforce are economically inactive because of illness. And those in work are getting sicker: workers are 13% more likely to have a health condition than they were three years ago.
+
+This bodes ill for Britain’s chronically unproductive economy: regions with higher rates of sickness tend to have lower productivity. And blue-collar workers were more likely to miss work, exacerbating economic inequalities that have only become more entrenched during the pandemic.
+
+To heal the economy, the IPPR recommends that policymakers improve prevention of avoidable illnesses and push for quicker access to doctors and treatments. Workplaces should also be more accommodating to those with poor health. Britain’s ailing economy can scarcely afford a sickly workforce.
+
+
+
+#### How to save the Earth’s biodiversity
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap316.jpg)
+
+PHOTO: GETTY IMAGES
+
+COP15, the UN’s 15th summit on biodiversity, begins in Montreal on Wednesday. More than 20,000 delegates will spend a fortnight debating how to save Earth’s plant and animal species, over 12% of which are at risk of extinction.
+
+Healthy ecosystems provide food, building materials and medicines. Plants release oxygen and absorb about 11bn tonnes of carbon dioxide each year; the oceans another 10bn. (Humans emit about 50bn tonnes.) The World Bank estimates that ecosystem degradation will reduce global GDP by $225bn by 2030.
+
+All of the UN’s previous biodiversity targets were missed. The hope is that COP15 will yield a stronger set of measurable, legally binding rules, as the Paris agreement did for climate change. Many countries want a commitment to protect 30% of the world’s land and oceans by 2030 (and money to do it). But how to get there remains opaque—especially when America remains one of the few countries not to have ratified COP’s underlying Convention on Biological Diversity.
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221210_dac949.jpg)
+
+
+
+#### Britain crowns a contemporary artist
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap314.jpg)
+
+PHOTO: REX SHUTTERSTOCK
+
+Over the past 40 years the Turner prize has been called many things: self-absorbed, embarrassing, baffling and irrelevant, to name but a few. But that won’t stop the art world from waiting impatiently for the announcement on Wednesday evening of the winner of Britain’s most prominent contemporary-art award.
+
+This year’s final four include no men and no artists’ collectives (in contrast with the situation in 2021, when only groups were shortlisted). Two of this year’s finalists —Ingrid Pollard and Veronica Ryan—are black British artists with long careers exploring historic racism and the lasting effects of colonisation. The others—Heather Phillipson and Sin Wai Kin—are younger, and their concerns have more recent origins. These include the dynamics of boy bands, the future of the planet and gender identity.
+
+Ms Pollard’s work, which explores Britain’s racist past through pub signs and puppetry, deserves the prize. But the Turner is nothing if not contrary. Sin Wai Kin’s pop-culture pastiche films could come out top.
+
+
+
+#### Daily quiz
+
+![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_37_35.jpeg)
+
+Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
+
+**Wednesday:** Which modern Egyptian city is on the site of the ancient capital of Thebes?
+
+**Tuesday:** Which 1977 musical, starring Liza Minnelli and Robert De Niro, was directed by Martin Scorsese?
+
+
+
+> Friendship improves happiness, and abates misery, by doubling our joys, and dividing our grief
+>
+> Cicero
