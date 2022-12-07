@@ -7328,9 +7328,13 @@ Catch up quickly on the global stories that matter
 
 Updated 4 hours ago 
 
-A jury in Manhattan convicted Donald Trump’s real-estate company of tax fraud. The Trump Organisation was found guilty of paying employees off the books to dodge taxes, and could face fines of $1.6m. Separately, the House committee investigating the January 6th attack on America’s Capitol plans to make “some” criminal referrals to the Department of Justice, according to the committee’s chairman. He said the targets and substance of the referrals, which do not carry legal weight, are not yet finalized.
+A jury in Manhattan convicted Donald Trump’s real-estate company of tax fraud. The Trump Organization was found guilty of paying employees off the books to dodge taxes, and could face fines of $1.6m. Separately, the House committee investigating the January 6th attack on America’s Capitol plans to make “some” criminal referrals to the Department of Justice, according to the committee’s chairman. He said the targets and substance of the referrals, which do not carry legal weight, are not yet finalized.
 
-
+| tax fraud 税务诈骗    | pay off 付清（账单） |
+| --------------------- | -------------------- |
+| dodge /dɑːdʒ/ 逃避    | referral 送交        |
+| substance 基本内容    | finalize 最后确定    |
+| legal weight 法律效力 |                      |
 
 
 
@@ -7338,17 +7342,42 @@ A jury in Manhattan convicted Donald Trump’s real-estate company of tax fraud.
 
 
 
-A drone attack on a Russian airfield in Kursk, around 100km from the Ukrainian border, set a storage tank in a nearby oil facility on fire, according to the region’s governor. Kyiv has not claimed responsibility for the strike, which followed attacks on two other Russian airbases on Monday. Meanwhile Russia’s defence minister, Sergei Shoigu, accused Ukraine of “nuclear terrorism” for shelling the Zaporizhia nuclear power plant (Ukraine denies shelling it).
+A drone attack on a Russian airfield in Kursk, around 100km from the Ukrainian border, set a storage tank in a nearby oil facility on fire, according to the region’s governor. Kyiv has not claimed responsibility for the strike, which followed attacks on two other Russian airbases on Monday. Meanwhile Russia’s defense minister, Sergei Shoigu, accused Ukraine of “nuclear terrorism” for shelling the Zaporizhia nuclear power plant (Ukraine denies shelling it).
+
+| shell v.轰炸；炮轰 |      |
+| ------------------ | ---- |
+
+
+
+---
+
+
 
 Cristina Fernández de Kirchner, Argentina’s vice-president, was sentenced to six years’ imprisonment and banned from holding public office on corruption charges. But she is unlikely to land in jail anytime soon: her job gives her immunity and she will surely appeal against the verdict. Ms Fernández was found guilty of abusing her authority while president from 2007 to 2015 to steer inflated public-works contracts to a friend.
 
+---
+
+
+
 Polls closed in Georgia’s run-off election for senator. Raphael Warnock, the Democratic incumbent, was the narrow favourite over Herschel Walker, a gaffe-prone Republican. Democrats will keep control of America’s Senate regardless of the outcome, lowering the stakes somewhat. Even so, 1.89m people voted early, breaking single-day voting records, and the race was the country’s most expensive this year.
+
+---
+
+
 
 Hungary vetoed an EU aid package worth €18bn ($18.8bn) for Ukraine. In response member states delayed a decision about whether to disburse €5.8bn in pandemic-recovery funds to Hungary. Fuelling the stand-off are EU demands that Hungary strengthen the rule of law before it gets any more money. EU finance ministers may meet again later this month in hopes of resolving the disagreement.
 
-Latvia withdrew the broadcasting licence of TV Rain, an exiled Russian news channel that had been reporting from its capital, Riga. Latvia’s media regulator accused the channel of threatening the country’s national security and social order. TV Rain has also attracted criticism from Latvian politicians for sticking its nose into local politics. But those grumbles are misplaced: countries should welcome offshore media outlets that pump real news back into Russia.
+---
 
-Football World Cup: underdogs Morocco became the first Arab team ever to reach the tournament’s quarter-finals, after beating Spain in a penalty shoot-out. Portugal did not start Cristiano Ronaldo in its 6-1 victory over Switzerland amid reports of a falling out between Ronaldo and Portugal’s coach, Fernando Santos.
+
+
+Latvia withdrew the broadcasting license of TV Rain, an exiled Russian news channel that had been reporting from its capital, Riga. Latvia’s media regulator accused the channel of threatening the country’s national security and social order. TV Rain has also attracted criticism from Latvian politicians for sticking its nose into local politics. But those grumbles are misplaced: countries should welcome offshore media outlets that pump real news back into Russia.
+
+---
+
+
+
+**Football World Cup:** underdogs Morocco became the first Arab team ever to reach the tournament’s quarter-finals, after beating Spain in a penalty shoot-out. Portugal did not start Cristiano Ronaldo in its 6-1 victory over Switzerland amid reports of a falling out between Ronaldo and Portugal’s coach, Fernando Santos.
 
 
 
