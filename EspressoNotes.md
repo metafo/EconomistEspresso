@@ -3835,7 +3835,7 @@ Britain’s new government delayed the announcement of its fiscal plan—which w
 
 #### Fact of the day: 
 
-**30m**, roughly the number of lives lost in interstate wars in the last 200 years. Read the full story.
+**30m**, roughly the number of lives lost in interstate wars in the last 200 years. 
 
 #### A superficial rebound for America’s economy
 
