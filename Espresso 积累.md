@@ -7937,3 +7937,126 @@ Our baristas will serve you a new question each day this week. On Friday your ch
 > What is beautiful is moral, that is all there is to it.
 >
 > Gustave Flaubert
+
+
+
+### December 13, 2022
+
+#### The world in brief December 13, 2022
+
+Catch up quickly on the global stories that matter
+
+Updated 3 hours ago (00:49 GMT / 08:49 Hong Kong)
+
+Authorities in the Bahamas arrested **Sam Bankman-Fried**, the former boss of **FTX**, at the request of American prosecutors who have filed unspecified criminal charges against him. Those charges are due to be unveiled on Tuesday; the Bahamas is expected to extradite him in short order. Mr Bankman-Fried presided over the [implosion of FTX](https://www.economist.com/briefing/2022/11/17/the-failure-of-ftx-and-sam-bankman-fried-will-leave-deep-scars), a crypto exchange, after it lent customer funds to his nominally separate trading firm.
+
+Volodymyr Zelensky, **Ukraine’s** president, asked G7 leaders for modern tanks and long-range weapons amid heavy fighting in his [country’s east](https://www.economist.com/europe/2022/12/06/russia-is-hurling-troops-at-the-tiny-ukrainian-town-of-bakhmut). The G7 promised to “meet Ukraine’s urgent requirements”. Separately, Vladimir Putin, Russia’s president, cancelled his regular year-end news conference. In the past he has allowed foreign press to pose questions at the event.
+
+The president of the **European Parliament** said there would be “no impunity” for EU officials implicated in a [cash-for-influence scandal](https://www.economist.com/graphic-detail/2022/09/06/corruption-in-europes-health-services-is-surprisingly-common) involving Qatar. On Monday police executed more raids. So far 19 homes and offices have been searched and six people arrested, including Eva Kaili, one of the parliament’s vice-presidents.
+
+**Hungary** and other **EU** countries reached a tentative resolution to their protracted [funding disagreement](https://www.economist.com/europe/2022/11/24/the-eu-is-withholding-aid-to-press-hungary-to-reform). The bloc will release €5.8bn ($6.1bn) in pandemic aid to Hungary and reduce the amount it withholds from a separate pot, to €6.3bn (down from €7.5bn), over rule-of-law concerns. In return Hungary will support an aid package for Ukraine worth €18bn and enact 27 governance reforms.
+
+**Indian** and **Chinese** troops sustained “minor injuries” in a clash at the countries’ disputed border in the Himalayas, according to Indian sources. The incident took place Friday in a north-eastern Indian state claimed by Beijing, but was not reported until Monday. Twenty-four soldiers died when the border dispute last [flared up](https://www.economist.com/china/2022/09/22/some-progress-in-the-border-dispute-between-china-and-india) in 2020; relations between the countries remain frosty.
+
+In 2021 global public and private **debt** as a share of economic output posted the steepest annual decline in 70 years, to 247% of GDP, according to the **IMF**. Pandemic-induced [bailouts](https://www.economist.com/finance-and-economics/2022/09/25/the-world-enters-a-new-era-bail-outs-for-everyone) saw the debt-to-GDP ratio rise by 29 percentage points in 2020. Amid inflation and the economic rebound it fell by 10 percentage points last year. An IMF official called 2021 a “very unusual year”.
+
+**Peru’s** new president, Dina Boluarte, said she would submit plans to Congress to bring forward general elections, following protests demanding her resignation. Demonstrations have rocked Peru since Pedro Castillo, who was president until last week, was arrested after a [bungled coup attempt](https://www.economist.com/the-americas/2022/12/07/after-a-bungled-coup-attempt-perus-president-falls) on Wednesday. Supporters of Mr Castillo have called Ms Boluarte, who was his vice-president, a “traitor”.
+
+
+
+#### Fact of the day: 
+
+77%, the approval rating of Narendra Modi, India’s prime minister. It may be the highest of any major world leader. 
+
+
+
+#### Correction: 
+
+In the Sunday edition of Espresso we incorrectly stated that the Nobel Peace prize was awarded in the city of Stockholm. In fact it was handed out in Oslo. Sorry.
+
+
+
+#### High hopes for low inflation in America
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221217_dap319.jpg)
+
+PHOTO: GETTY IMAGES
+
+Over the past year each brief deceleration in inflation in America has been followed by a strong rebound in price pressures. Investors and central bankers around the world will scrutinise the latest figures, due on Tuesday, to see whether this dismal pattern may be at an end. Forecasters reckon that the core consumer price index, which excludes food and energy costs, rose by 0.3% in November, its second straight month at that pace.
+
+If correct, that would be the most subdued two-month run of inflation since 2021. The costs of many consumer goods are falling as supply-chain issues melt away. Property prices are also weakening, weighed down by elevated interest rates. But pressures are not about to disappear. In the ultra-tight labour market, wages are rising fast. As Russia’s war in Ukraine drags on, oil prices could easily soar again. Relief at any slowdown in inflation will be circumscribed.
+
+
+
+#### Criminal charges for Sam Bankman-Fried
+
+![img](https://cdn.espresso.economist.com/files/public/images/000_32NT6GW.jpg)
+
+PHOTO: AP
+
+On Tuesday Sam Bankman-Fried was to appear before Congress, to answer questions about the collapse of FTX, the crypto exchange he founded. Instead, after his arrest in the Bahamas, he will learn what criminal charges await him in America when federal prosecutors there unseal their indictment. The Bahamas is expected to extradite him in short order.
+
+Prosecutors have been probing whether Mr Bankman-Fried broke the law by loaning FTX customer funds to Alameda Research, his nominally independent trading firm. They have also been investigating whether he manipulated the market for two cryptocurrencies.
+
+Fraud charges require prosecutors to prove that a defendant knowingly deceived investors or customers. In several interviews since resigning as boss of FTX Mr Bankman-Fried has professed ignorance about how the firm transferred funds to Alameda and blamed others for the lax controls. His media strategy may offer a preview of his eventual legal defence: that he was simply hapless and misinformed.
+
+
+
+#### What African governments want from America
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221217_dap314.jpg)
+
+PHOTO: GETTY IMAGES
+
+China’s presence in Africa is subject to intense scrutiny by the West. Russian interference on the continent worries Western governments, too. But America, one of the worriers, also has clout in the region. The arrival of dozens of African leaders in Washington on Tuesday, for the first US-Africa Leaders Summit since 2014, is testament to its role.
+
+For many African countries America is an indispensable security ally. Its trade terms also offer preferential access to African exporters. And American humanitarian aid has saved millions of lives. Yet African politicians want more from their relationship with America, especially when their economies are suffering from the pandemic, the war in Ukraine and their own mismanagement.
+
+Donald Trump saw Africa through the prism of America’s contest with China. But Joe Biden wants to show that he takes the continent’s own agenda seriously. American officials say this summit is about listening to what Africans have to say. But Africans will still want to hear what America has to offer.
+
+
+
+#### How to rebuild Ukraine, from Paris
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221217_dap315.jpg)
+
+PHOTO: GETTY IMAGES/UKRINFORM/FUTURE PU
+
+Ukraine’s president, Volodymyr Zelensky, and his French counterpart, Emmanuel Macron, will jointly host a conference in Paris on Tuesday on aid for Ukraine. Mr Zelensky will appear by video link, while his prime minister, Denys Shmyhal, will be in the French capital to drum up support for his war-battered country. Mr Shmyhal estimates that the full-scale reconstruction of Ukraine will cost $750bn.
+
+The conference will have two parts. An international roundtable will consider how to help Ukraine survive the winter. Mr Macron wants pledges for the supply of generators, medical equipment and other aid. A further bilateral discussion will consider how French firms can help with reconstruction.
+
+The meeting comes when Mr Macron is keen to show that, despite suggestions from eastern European allies that he is soft on Russia, France is fully behind Ukraine. According to the Kiel Institute, a German research outfit, of EU countries only Germany has pledged more aid.
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221217_DAC145.jpg)
+
+
+
+#### World Cup semi-finals begin
+
+![img](https://cdn.espresso.economist.com/files/public/images/20221217_dap317.jpg)
+
+PHOTO: GETTY IMAGES/REUTERS
+
+On Tuesday Argentina and Croatia meet in the first semi-final of the football World Cup in Qatar. Argentina will look to avenge their early defeat by Croatia at the last World Cup, in 2018. But that will be easier said than done. The Croatians have a knack for winning games against the odds. In their last match they shocked the pre-tournament favourites, Brazil, winning on penalties. And they have unfinished business of their own, having been runners-up last time around.
+
+Whoever wins will face the victor of the second semi-final, between France and Morocco, on Wednesday. France, the defending champions, who beat Croatia in that final in 2018, are the odds-on favourites to win their semi-final and the whole competition. But Morocco has already progressed further than any African team before, beating Belgium, Spain and Portugal. Triumph against France—the country’s former colonial overlord—would add to the long list of upsets in Qatar.
+
+
+
+#### Daily quiz
+
+![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_79.jpeg)
+
+Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown three winners on Saturday.
+
+**Tuesday:** Which Boston Celtics basketball legend won the NBA Most Valuable Player Award in 1984, 1985 and 1986?
+
+**Monday:** Which Alexandre Dumas story focuses on the wrongly imprisoned Edmond Dantès?
+
+
+
+> He who praises everybody praises nobody.
+>
+> Samuel Johnson
+

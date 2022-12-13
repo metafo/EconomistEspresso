@@ -8539,7 +8539,7 @@ If correct, that would be the most subdued two-month run of inflation since 2021
 
 #### Criminal charges for Sam Bankman-Fried
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221217_dap321.jpg)
+![img](https://cdn.espresso.economist.com/files/public/images/000_32NT6GW.jpg)
 
 PHOTO: AP
 
@@ -8608,3 +8608,4 @@ Our baristas will serve you a new question each day this week. On Friday your ch
 > He who praises everybody praises nobody.
 >
 > Samuel Johnson
+
