@@ -8644,7 +8644,128 @@ Our baristas will serve you a new question each day this week. On Friday your ch
 
 
 
-> He who praises everybody praises nobody.
+> **He who praises everybody praises nobody.**
 >
 > Samuel Johnson
 
+
+
+
+
+### December 14, 2022
+
+#### The world in brief December 14, 2022
+
+Catch up quickly on the global stories that matter
+
+Updated less than 1 hour ago (22:48 GMT / 06:48 Hong Kong)
+
+------
+
+**America’s** core consumer price index, a measure of **inflation** excluding food and energy costs, rose by [just 0.2%](https://www.economist.com/finance-and-economics/2022/12/13/americas-inflation-fever-may-be-breaking-at-last) in November, its second straight month at a subdued level. On Wednesday the Federal Reserve is expected to raise interest rates by just 0.5 percentage points, after four consecutive rises of 0.75 percentage points. Markets in Europe and America rose on the inflation news.
+
+Federal prosecutors in New York charged **Sam Bankman-Fried**, the [former boss of FTX](https://www.economist.com/briefing/2022/11/17/the-failure-of-ftx-and-sam-bankman-fried-will-leave-deep-scars), with eight crimes, including wire fraud and money laundering. Those add to civil fraud charges by America’s Securities and Exchange Commission. At a congressional hearing John J. Ray III, the new boss of the crypto exchange, said his predecessor presided over “old-fashioned embezzlement”. Mr Bankman-Fried was arrested on Monday in the Bahamas.
+
+**China** withdrew its state-mandated “itinerary code” app that tracked people travelling to areas with high rates of **covid-19**. It is the latest sign that the authorities are [loosening](https://www.economist.com/china/2022/12/13/how-chinese-people-are-dealing-with-the-spread-of-covid-19) draconian lockdown restrictions after [protests](https://www.economist.com/china/2022/12/01/lessons-from-a-chinese-protest) erupted against them two weeks ago. The app’s removal comes ahead of Chinese New Year holidays next month when millions travel across the country to be with their families.
+
+Members of the **European Parliament** voted to strip **Eva Kaili** of her role as one of the body’s 14 vice-presidents. The Greek MEP has been engulfed in an alleged bribery scandal involving World Cup hosts Qatar. Greek authorities have frozen assets belonging to her and her family, and she has also been expelled from her political party in Greece. She, and Qatar, deny any wrongdoing.
+
+The largest [strikes](https://www.economist.com/britain/2022/12/13/both-the-british-government-and-the-unions-dig-in-on-train-strikes) in **Britain** for a decade caused the loss of 417,000 working hours during October, according to the Office for National Statistics. Around 1m hours are expected to be lost in December as rail workers, postal workers, nurses and teachers demand better pay and conditions. Inflation and soaring [energy costs](https://www.economist.com/britain/2022/11/24/britains-economic-outlook-is-very-gloomy) have created a cost-of-living [crisis](https://www.economist.com/britain/2022/12/12/the-strange-case-of-britains-demise) in the country.
+
+The **EU** reached a tentative agreement to tax imports produced by countries with looser emissions standards than those of the bloc. The tariff, which has not been finalised, will probably be implemented starting next October. It has [provoked pushback](https://www.economist.com/business/2021/08/07/the-eus-proposed-carbon-tariff-gets-a-mixed-reaction-from-industry) from some of the EU’s trade partners while inspiring others, such as Britain and Canada, to consider similar steps.
+
+**Football World Cup:** Argentina beat Croatia 3-0 to advance to the final, giving Lionel Messi a shot at taking home the World Cup trophy—a piece of silverware that has so far eluded him. Argentina will play the winner of tomorrow’s match between France and Morocco.
+
+
+
+#### **Fact of the day:** 
+
+**70%**, the share of electricity generation in France produced by nuclear reactors, the highest in the world. [Read the full story](https://www.economist.com/business/2022/12/12/can-the-french-nuclear-industry-avoid-meltdown).
+
+
+
+------
+
+#### The Fed downshifts to a slower rate rise
+
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221217_dap330.jpg)
+
+PHOTO: REUTERS
+
+Wednesday will probably mark the start of a new phase in the Federal Reserve’s battle against inflation. After four consecutive [interest-rate increases](https://www.economist.com/finance-and-economics/2022/11/02/the-fed-delivers-another-jumbo-rate-rise-and-its-far-from-done) of 0.75 percentage points, America’s central bank is likely to opt for half a point at its December meeting.
+
+In part that will reflect the Fed’s confidence that [inflation is easing](https://www.economist.com/finance-and-economics/2022/12/07/inflation-is-falling-but-not-enough). Data released on Tuesday showed the core consumer-price index rose by just 0.2% in November. But there are two crucial caveats. First, it takes a long time for rate changes to filter through the economy. The combined impact of the past year’s tightening will only show up next year. The risk of a recession will grow even as rate increases get smaller.
+
+Second, the Fed has been at pains to insist that it will keep rates elevated for as long as is needed to bring inflation to heel. A slowdown in rate increases does not equate to an easing of monetary policy.
+
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221217_DAC161.jpg)
+
+
+
+#### A crackdown in Bangladesh
+
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221217_dap334.jpg)
+
+PHOTO: GETTY IMAGES
+
+On Wednesday Bangladesh will mark the anniversary of the murder, by a militia controlled by the Pakistani army, of intellectuals just before the end of the war of independence in 1971. The shadow of that [conflict](https://www.economist.com/1843/2017/03/28/virtual-revenge-is-sweet-in-bangladesh) looms large in Bangladesh. The prime minister, Sheikh Hasina Wajed, whose party, the Awami League, led the independence struggle, faces demands from the opposition for her resignation. She in turn accuses the opposition Bangladesh Nationalist Party of favouring Pakistan.
+
+The real issues, claims the BNP, are the poor state of the economy and Sheikh Hasina’s authoritarian tendencies. In recent weeks the party has been holding massive protests, capitalising on public anger about slowing economic growth and surging inflation. It regards the conviction and jailing on corruption charges of its leader, [Khaleda Zia](https://www.economist.com/asia/2018/02/08/the-conviction-of-khaleda-zia-hobbles-bangladeshs-opposition), a former prime minister, as political persecution.
+
+The government has cracked down hard on the protests. Several thousand BNP activists have been arrested, many on charges of inciting violence. Elections are not due until January 2024. There is no sign that tensions will ease before then.
+
+
+
+#### Better news for Germany’s economy
+
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221217_dap328.jpg)
+
+PHOTO: DPA
+
+On Wednesday the Ifo Institute, a think-tank in Munich, will publish its quarterly economic forecast for Germany. It is likely to be less gloomy than the last one, published in September. The morale of German business was better than expected in November, according to a separate survey conducted by Ifo. Firms are heartened by signs that an impending recession may be less severe than earlier forecasts. Germany has filled all of its storage facilities for [natural gas](https://www.economist.com/business/2022/12/01/meet-the-man-who-may-decide-the-fate-of-german-industry), even though no Russian gas has arrived since September, easing panic about soaring energy costs. And the economy grew, rather unexpectedly, by 0.4% in the third quarter.
+
+The rate of inflation may have already peaked which should mean that, after a steep fall, households’ real incomes can rise again. Germany’s politicians will hope that increased consumer spending will provide the motor of recovery in the second half of next year. But they cannot be [complacent](https://www.economist.com/leaders/2022/10/13/europe-is-growing-complacent-about-its-energy-crisis). Energy shortages, and high prices, could return [next winter](https://www.economist.com/europe/2022/09/29/europes-next-energy-crunch).
+
+
+
+#### Travel operators hope for a happier 2023
+
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221217_dap335.jpg)
+
+PHOTO: GETTY IMAGES
+
+As Europe shivers through a cold snap, travel operators will hope that winter-weary consumers book big plans for next summer. After three years of pandemic restrictions and labour shortages, the industry is trying to [return to normal](https://www.economist.com/business/2022/06/09/air-travel-is-taking-flight-again). An early test of progress comes on Wednesday, when TUI, a German travel operator, reports its latest results.
+
+Investors expect the past quarter’s sales to be back to pre-pandemic levels and for the company to turn its first profit for the first time since then. TUI says it is “optimistic” about the year ahead, noting that early bookings for next summer are up on last year. But high inflation and rising interest rates mean less spending money, and could yet stem the flow of bookings. And a group of more than 500 British holidaymakers are suing the company after an outbreak of gastric illness spoiled their summer get-aways this year. Uncertainty still clouds the skies.
+
+
+
+#### One step closer to controlled fusion power
+
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221217_dap336.jpg)
+
+PHOTO: NIF
+
+America’s energy secretary, Jennifer Granholm, announced on Tuesday that the country’s National Ignition Facility (NIF) had lived up to the “I” in its name, by [achieving ignition](https://www.economist.com/science-and-technology/2022/12/13/controlled-fusion-power-is-little-nearer-now-than-it-was-a-week-ago).
+
+The stuff ignited was some pellets of a frozen mixture of deuterium and tritium—isotopes of hydrogen. “Ignition” means that NIF, which creates fusion in such pellets by bombarding them simultaneously with 192 laser beams, had started a reaction which released more energy than was put into the pellet by the beams.
+
+Ms Granholm made a great fuss about that. But the huge amount of energy required to generate the beams in the first place (which did not form part of the headline calculation) means this approach is not even close to yielding a route to civil fusion power. Since NIF’s main job is military (the understanding of hydrogen bombs) that does not directly matter. But if civil fusion does come about, it is unlikely to be done in this way.
+
+
+
+#### Daily quiz
+
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_80.jpeg)
+
+Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on **Friday** to [QuizEspresso@economist.com](https://mail.google.com/mail/?view=cm&fs=1&tf=1&to=QuizEspresso@economist.com). We’ll pick randomly from those with the right answers and crown three winners on Saturday.
+
+**Wednesday:** What is the name of Mary Poppins’s chimney sweep friend, famously played by Dick van Dyke in the original movie?
+
+**Tuesday:** Which Boston Celtics basketball legend won the NBA Most Valuable Player Award in 1984, 1985 and 1986?
+
+
+
+> **Where all think alike, no one thinks very much.**
+>
+> Walter Lippman
