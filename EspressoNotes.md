@@ -1680,7 +1680,7 @@ Credit Suisse said it would buy back up to $3bn of its own debt in a bid to reas
 
 #### How long can Ukraine’s winning streak last?
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221008_dap354.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221008_dap354.jpg)
 
 PHOTO: EPA
 
@@ -1690,13 +1690,13 @@ This month Ukrainian soldiers in Kherson pushed Russian fighters along the Dniep
 
 But the window of opportunity may prove short. Russian forces will soon be bolstered by thousands of recently mobilised troops. Though poorly trained, they will supplement Mr Putin’s fight. And the onset of wintery conditions may soon chill the advance.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221008_DAM111.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221008_DAM111.jpg)
 
 
 
 #### Nevada’s nail-biting Senate race
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221008_dap335.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221008_dap335.jpg)
 
 PHOTO: AP
 
@@ -1709,7 +1709,7 @@ The Economist’s midterms model suggests Nevada’s Senate race is a toss-up, m
 
 #### The New York Philharmonic returns to Lincoln Centre
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221008_dap357.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221008_dap357.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -1724,7 +1724,7 @@ The hall—long criticised for its subpar acoustics and dreary décor—has been
 
 #### The Women’s Rugby World Cup
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221008_dap344.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221008_dap344.jpg)
 
 PHOTO: EPA
 
@@ -1739,7 +1739,7 @@ The last two times the team played New Zealand, who are five-time World Cup winn
 
 #### Weekend Profile: Ron DeSantis, the man whom even hurricanes cannot batter
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221008_dap341.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221008_dap341.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -1760,7 +1760,7 @@ Ironically it was Mr Trump’s surprise endorsement that helped Mr DeSantis take
 
 #### Weekly crossword
 
-![img](https://cdn.espresso.economist.com/files/public/images/EspressoCrosswordpic_0.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/EspressoCrosswordpic_0.jpg)
 
 Our crossword is designed for experienced cruciverbalists and newcomers alike. Both sets of clues give the same answers, all of which feature in articles in this week’s edition of The Economist:
 
@@ -1786,13 +1786,13 @@ Email all four answers by 9am BST on Monday to crossword@economist.com, along wi
 
 3 across What an Iranian protest song declares clerical rule to be? (6)
 
-![img](https://cdn.espresso.economist.com/files/public/images/XwordGrid_11_6560.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/XwordGrid_11_6560.jpg)
 
 
 
 #### The winners of this week’s quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/20220218_OPD004_hq_51.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20220218_OPD004_hq_51.jpg)
 
 Thank you to everyone who took part in this week’s quiz. The winners, chosen at random from each continent, were:
 
@@ -1884,7 +1884,7 @@ Iran’s state-run broadcaster appeared to be hacked when a news bulletin was in
 
 #### Taiwan’s National Day
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221008_dap360.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221008_dap360.jpg)
 
 PHOTO: REUTERS
 
@@ -1896,7 +1896,7 @@ Tsai Ing-wen, Taiwan’s president, wants to signal that Taiwan is uncowed by Ch
 
 #### Making Russia a pariah
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221008_dap363.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221008_dap363.jpg)
 
 PHOTO: REUTERS
 
@@ -1910,7 +1910,7 @@ This week most attention will be on the fence-sitters, among them many poor stat
 
 #### Overflowing in-trays at the IMF and the World Bank
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221008_dap355.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221008_dap355.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -1924,7 +1924,7 @@ Officials will look for opportunities to co-operate on inflation-fighting and de
 
 #### Will J.D. Vance advance?
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221008_dap362.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221008_dap362.jpg)
 
 PHOTO: AP
 
@@ -1936,7 +1936,7 @@ Mr Vance’s campaign has sounded almost apocalyptic at times, focusing on the t
 
 #### A new pipeline to help Germany this winter
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221008_dap361.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221008_dap361.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -2131,7 +2131,7 @@ North Korea’s state news agency said that the country’s testing of 12 ballis
 
 #### Russia doubles down in Ukraine
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap306.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221015_dap306.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -2143,7 +2143,7 @@ Monday’s missiles were retaliation for an attack on a bridge linking Crimea wi
 
 #### Japan reopens to foreign tourists
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap304.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221015_dap304.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -2157,7 +2157,7 @@ The yen being at its weakest level against the dollar in nearly 25 years may ins
 
 #### Meta’s metaverse conference
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap305.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221015_dap305.jpg)
 
 PHOTO: AFP
 
@@ -2165,13 +2165,13 @@ Nearly a year has passed since the company once known as Facebook renamed itself
 
 Does the firm have anything to show yet for its big bet? Investors and consumers will find out on Tuesday at Meta Connect, where progress on Meta’s virtual- and augmented-reality technologies will be revealed. These are likely to include an upgraded and pricier version of the Quest virtual-reality headset. Meta is also expected to unveil improvements to Horizon, a virtual-reality social network released last year for Quest users. Screenshots from Horizon of a cartoonish, poorly rendered version of Mark Zuckerberg, the company's founder, became a meme this summer.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221015_DAC305.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221015_DAC305.jpg)
 
 
 
 #### The fattest bears in Alaska
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap307.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221015_dap307.jpg)
 
 PHOTO: NATURE PICTURE LIBRARY
 
@@ -2183,7 +2183,7 @@ The contest, which began in 2014, serves a purpose besides ogling champion chunk
 
 #### Damien Hirst burns his art
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap303.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221015_dap303.jpg)
 
 PHOTO: AFP
 
@@ -2197,7 +2197,7 @@ In all 9,000 works were sold to the public: 5,149 buyers chose paintings while 3
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_57.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_57.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 BST on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -2243,7 +2243,7 @@ China has ramped up anti-covid measures in some big cities ahead of the Communis
 
 #### Asia’s leaders gather in Kazakhstan
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap314.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221015_dap314.jpg)
 
 PHOTO: REUTERS
 
@@ -2253,13 +2253,13 @@ CICA’s 27 member states, which include China and India, cover much of the Midd
 
 The heads of some attending countries, including Mr Tokayev, are allies of Mr Putin, but sceptical of his war in Ukraine. Discussions of the conflict are thus likely to be shunted to the sidelines. Mr Putin may meet Mr Erdogan, who hopes to broker talks between Russia and the West. But the sight of one member state firing missiles at its smaller neighbour—Ukraine is one of CICA’s “observer” members—hardly inspires confidence in CICA’s peacebuilding mission.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221015_DAM938_1.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221015_DAM938_1.jpg)
 
 
 
 #### Hong Kong’s “dim sum” bonds
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap316.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221015_dap316.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -2271,7 +2271,7 @@ These securities, nicknamed “dim sum” bonds, are popular with mainland buyer
 
 #### America’s contentious national monuments
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap310.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221015_dap310.jpg)
 
 PHOTO: ALAMY
 
@@ -2283,7 +2283,7 @@ The move is probably intended to boost Michael Bennet, a Democratic senator who 
 
 #### Sinn Féin’s vision for Ireland
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap313.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221015_dap313.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -2297,7 +2297,7 @@ Despite this, and the party’s pledge that the commission will engage with Prot
 
 #### Warhol’s copyright battle
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap311.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221015_dap311.jpg)
 
 PHOTO: REUTERS
 
@@ -2311,7 +2311,7 @@ Allowing such appropriation, Ms Goldsmith says, amounts to “all copying, no ri
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_58.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_58.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 BST on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -2360,7 +2360,7 @@ Russia’s security service said it had detained eight people in connection with
 
 #### America remains in the grip of inflation
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap329.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221015_dap329.jpg)
 
 PHOTO: PRESS ASSOCIATION
 
@@ -2372,7 +2372,7 @@ With underlying inflation still running that high, investors are all but certain
 
 #### The Bank of England’s tough love
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap319_1.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221015_dap319_1.jpg)
 
 PHOTO: EPA
 
@@ -2384,7 +2384,7 @@ But what happens after Friday? The worry is that after the withdrawal of the ban
 
 #### Congress’s final January 6th hearing
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap327.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221015_dap327.jpg)
 
 PHOTO: DAVE SIMONDS
 
@@ -2396,7 +2396,7 @@ Exactly how much criminality the current investigators have unearthed is unclear
 
 #### Controversial new speakers for Italy’s parliament
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap328.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221015_dap328.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -2404,13 +2404,13 @@ On Thursday Italy’s new parliament meets for the first time since last month�
 
 Deciding who will preside over the Senate is particularly sensitive: the speaker would succeed Italy’s 81 year-old president, Sergio Mattarella, were he to die or be incapacitated. Neither of the two front-runners is a stranger to controversy. The FdI’s Ignazio La Russa joked during the pandemic that Italians should use the fascist salute to avoid shaking hands. The League’s Roberto Calderoli once compared a black minister to an orangutan.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221015_DAC104.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221015_DAC104.jpg)
 
 
 
 #### A film festival about immigration
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap325.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221015_dap325.jpg)
 
 PHOTO: AVENIDA
 
@@ -2423,7 +2423,7 @@ The theme of the festival, “home”, is the focus of “My DACA Life”, a doc
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_59.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_59.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 BST on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -2484,7 +2484,7 @@ Researchers from Oxford University have discovered that covid vaccines are more 
 
 #### Wall Street banks report
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap337.jpg)PHOTO: REUTERS
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221015_dap337.jpg)PHOTO: REUTERS
 
 Banks are unusual companies. Rising interest rates and slowing growth are a double-whammy for other firms, driving up costs and hurting revenues. But higher rates are a boon for banks, who make money on the spread they can charge between the cost of borrowing funds and lending them out (called net interest income, or NII). This swells with higher interest rates.
 
@@ -2494,7 +2494,7 @@ The question is whether high NII offsets sluggishness elsewhere in the business 
 
 #### Georgia’s Senate candidates debate
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap332_0.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221015_dap332_0.jpg)
 
 PHOTO: EPA
 
@@ -2504,13 +2504,13 @@ The race for governor of Georgia, though, looks good for the Republicans, with B
 
 For more about the midterms and the race to control Congress, explore our model.
 
-![img](https://cdn.espresso.economist.com/files/public/images/Georgia.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/Georgia.jpg)
 
 
 
 #### Haiti’s criminal chaos
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap336.jpg)PHOTO: AP
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221015_dap336.jpg)PHOTO: AP
 
 The UN is considering whether to send troops to Haiti following a request last week by the government. Ariel Henry, the prime minister, has asked for a “specialised armed force” to help crack down on criminal gangs. America has sent a coastguard vessel to patrol Haitian waters, and promised more aid. But it has stopped short of committing manpower.
 
@@ -2522,7 +2522,7 @@ Yet Mr Henry’s request is controversial. The prime minister, installed as acti
 
 #### Burkina Faso’s putschists make a plan
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap333.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221015_dap333.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -2536,7 +2536,7 @@ The last putschists promised to hand back power to civilians by July 2024. Capta
 
 #### A mountain race against climate change
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap338.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221015_dap338.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -2548,7 +2548,7 @@ Conditions in Bhutan are also challenging. On the plus side, it is the world’s
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_60.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_60.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 BST on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -2560,7 +2560,7 @@ Thursday: In the Rastafarian religion, which site is a place of peace and freedo
 
 #### The winners of last week’s crossword
 
-![img](https://cdn.espresso.economist.com/files/public/images/Crossword_6.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/Crossword_6.jpg)
 
 Thank you to everyone who took part in our new weekly crossword, published in the weekend edition of Espresso. The winners, chosen at random from each continent, were:
 
@@ -2626,7 +2626,7 @@ Amid rising tensions on the Korean peninsula the north fired a short-range balli
 
 #### Russia on the back foot in Ukraine
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap359.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221015_dap359.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -2638,7 +2638,7 @@ But Russia is on the back foot everywhere else. In Luhansk province, also in eas
 
 #### China’s largest trade expo opens—online
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap342.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221015_dap342.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -2652,7 +2652,7 @@ As the world economy slows, China’s trade is also entering a difficult period.
 
 #### Parisians rally against rising prices
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap340_1.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221015_dap340_1.jpg)
 
 PHOTO: PA
 
@@ -2664,7 +2664,7 @@ The planned show of force comes at an awkward time for President Emmanuel Macron
 
 #### The T20 World Cup
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap341.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221015_dap341.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -2676,7 +2676,7 @@ Their dismal showing in the previous World Cup in 2021, where they lost four of 
 
 #### Weekend Profile: Mohammed Rostami Gachi, Iran’s brutal enforcer
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap360.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221015_dap360.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -2694,7 +2694,7 @@ As protests against Ms Amini’s death spread—costing, so far, more than 200 l
 
 #### Weekly crossword
 
-![img](https://cdn.espresso.economist.com/files/public/images/EspressoCrosswordpic_1.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/EspressoCrosswordpic_1.jpg)
 
 Our crossword is designed for experienced cruciverbalists and newcomers alike. Both sets of clues give the same answers, all of which feature in articles in this week’s edition of The Economist:
 
@@ -2720,11 +2720,11 @@ Factual clues
 
 3 across Its illegal to do this with some firewood in New York State (6)
 
-![img](https://cdn.espresso.economist.com/files/public/images/XwordGrid_11_656_9.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/XwordGrid_11_656_9.jpg)
 
 #### The winners of this week’s quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/20220218_OPD004_hq_53.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20220218_OPD004_hq_53.jpg)
 
 Thank you to everyone who took part in this week’s quiz. The winners, chosen at random from each continent, were:
 
@@ -2782,7 +2782,7 @@ Uganda imposed a three-week lockdown in two districts of its central region to c
 
 #### NATO’s not-so-routine nuclear drills
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap346.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221015_dap346.jpg)
 
 PHOTO: AFP
 
@@ -2796,7 +2796,7 @@ The alliance is betting that conducting its nuclear drills helps keep its deterr
 
 #### Chinese cars plug into European markets
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap348.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221015_dap348.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -2808,7 +2808,7 @@ China, home to the world’s biggest car industry, also churns out more electric
 
 #### India’s oldest party seeks a revamp
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap349.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221015_dap349.jpg)
 
 PHOTO: AP
 
@@ -2822,7 +2822,7 @@ But Mr Tharoor’s hopes may be in vain. The build-up to the Congress’s leader
 
 #### Jeremy Hunt takes the wheel
 
-![img](https://cdn.espresso.economist.com/files/public/images/huntpic.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/huntpic.jpg)
 
 PHOTO: AFP
 
@@ -2834,7 +2834,7 @@ But a partial reversal of some measures on Friday wasn’t enough to satisfy tra
 
 #### The six Booker hopefuls
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221015_dap350.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221015_dap350.jpg)
 
 PHOTO: BOOKER PRIZE 2022
 
@@ -2846,7 +2846,7 @@ Quietly and succinctly—at 116 pages, hers is the shortest book ever shortliste
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_37_25.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_37_25.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 BST on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -2891,7 +2891,7 @@ The Swedish parliament voted for Moderate Party leader Ulf Kristersson to become
 
 #### How to to defeat kamikaze drones
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap312.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221022_dap312.jpg)
 
 PHOTO: EPA
 
@@ -2905,7 +2905,7 @@ America’s Joint Counter-small Unmanned Aircraft Systems Office (JCO) will issu
 
 #### Netflix is swayed by advertising
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap307.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221022_dap307.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -2915,13 +2915,13 @@ The company’s recent share performance explains the U-turn. In 2020-21, when N
 
 Can ads turn things around? At $15.49 a month in America, Netflix’s standard plan is the priciest of the main streamers. By contrast its $6.99 ads-included plan, launching next month, will undercut rivals such as Disney+ and HBO Max. Cost-conscious households may downgrade or sign back up. But as Mr Hastings knows, there’s no longer any easy money in streaming.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221022_DAC417.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221022_DAC417.jpg)
 
 
 
 #### Florida’s Senate candidates debate
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap305.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221022_dap305.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -2937,7 +2937,7 @@ For more about the midterms and the race to control Congress, explore our model.
 
 #### The BBC’s 100th birthday
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap308.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221022_dap308.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -2949,7 +2949,7 @@ In its early days the BBC employed no journalists. “There is no news,” ran o
 
 #### The hauntingly beautiful tale of “Till”
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap309.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221022_dap309.jpg)
 
 PHOTO: AP
 
@@ -2963,7 +2963,7 @@ Chinonye Chukwu, the director, handles the toughest moments, including a full-bo
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_61.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_61.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 BST on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -3008,7 +3008,7 @@ Johnson & Johnson reported a strong quarterly profit of $4.5bn, buoyed by demand
 
 #### Hong Kong’s policy address
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap319.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221022_dap319.jpg)
 
 PHOTO: AP
 
@@ -3018,7 +3018,7 @@ Mr Lee’s policies satisfy neither health experts nor businesses. Still, with C
 
 #### European inflation has not yet peaked
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap317.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221022_dap317.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -3028,7 +3028,7 @@ On Wednesday, new statistics from the European Union will give the full picture 
 
 #### Dented profits for aluminium producers
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap315_0.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221022_dap315_0.jpg)
 
 PHOTO: REUTERS
 
@@ -3038,11 +3038,11 @@ Aluminium producers’ profits are shaped by supply and demand. From mid-2020 pr
 
 Prices peaked in March, at the highest since 1990, but have since collapsed. Chinese production is increasing just as a slowing global economy squeezes demand. As part of its sanctions for the war in Ukraine America may now increase tariffs on imports of aluminium from Russia, the third-largest producer. If that happens, expect another spike in prices, and profits for Alcoa.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221022_DAC435.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221022_DAC435.jpg)
 
 #### Could Oregon elect a Republican governor?
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap323.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221022_dap323.jpg)
 
 PHOTO: AP
 
@@ -3054,7 +3054,7 @@ The city faces an increase in violent crime and homelessness. The homeless popul
 
 #### Crypto’s white knight
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap316.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221022_dap316.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -3066,7 +3066,7 @@ On Wednesday a bankruptcy court will consider whether to let the deal proceed. B
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_61.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_61.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 BST on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -3113,7 +3113,7 @@ James Cleverly, Britain’s foreign secretary, said on Wednesday that the govern
 
 #### How do you solve a problem like North Korea?
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap325.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221022_dap325.jpeg)
 
 PHOTO: AFP
 
@@ -3125,7 +3125,7 @@ So far the response has followed a familiar pattern: shows of military strength,
 
 #### The EU’s packed agenda
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap332.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221022_dap332.jpeg)
 
 PHOTO: PRESS ASSOCIATION
 
@@ -3137,7 +3137,7 @@ That will leave more time to discuss the situation in Ukraine. Funds to keep the
 
 #### An ultimatum at a Ukrainian nuclear plant
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap329.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221022_dap329.jpeg)
 
 PHOTO: GETTY IMAGES
 
@@ -3149,7 +3149,7 @@ The plant’s pre-invasion workforce has shrunk by more than two-thirds. Many We
 
 #### Turkey keeps its zany economic policies
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap335.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221022_dap335.jpeg)
 
 PHOTO: DAVE SIMONDS
 
@@ -3157,13 +3157,13 @@ With inflation surging to 83% and the Turkish lira down by nearly 40% against th
 
 Analysts therefore expect another full percentage point cut at the bank’s monetary-policy committee meeting on Thursday. With Mr Erdogan desperate to sustain economic growth, which reached 7.6% in the three months to June, ahead of presidential and parliamentary elections next year, the benchmark rate may soon reach single digits. Inflation be damned.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221022_DAC457.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221022_DAC457.jpg)
 
 
 
 #### The art of dystopian Britain
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap327.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221022_dap327.jpeg)
 
 PHOTO: EPA
 
@@ -3175,7 +3175,7 @@ Yet, as a barometer of what the nation cares about, the Turner prize often succe
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/EspressoQuiz2022.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/EspressoQuiz2022.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 BST on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -3220,7 +3220,7 @@ At least 50 people were killed by security forces in Chad during a banned anti-g
 
 #### Britain awaits a new prime minister
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap343.jpg)PHOTO: EPA
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221022_dap343.jpg)PHOTO: EPA
 
 The merry-go-round of Downing Street turns again. Liz Truss, who resigned on Thursday as Britain’s prime minister, will be remembered as the shortest and arguably least successful holder of that office. After bond markets rejected her “mini-budget”, she fired her chancellor, reneged on her promise of tax cuts and lost her authority.
 
@@ -3230,7 +3230,7 @@ The Conservative Party will now embark on an expedited leadership contest to be 
 
 #### Steve Bannon faces the music
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap341.jpg)PHOTO: GETTY IMAGES
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221022_dap341.jpg)PHOTO: GETTY IMAGES
 
 On Friday Steve Bannon, Donald Trump’s former consigliere, will be sentenced by a judge in Washington for contempt of Congress. In July he was convicted of two misdemeanours for refusing to appear before a House committee investigating the Capitol riot on January 6th 2021. Prosecutors have asked that he serve six months in prison and pay a $200,000 fine. They cited his “name calling, mimicry and menacing rhetoric” towards the committee members, and his lack of remorse.
 
@@ -3240,17 +3240,17 @@ The contempt-of-Congress statute is rarely enforced. Just one other person—Pet
 
 #### An LNG jam at European ports
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap338.jpg)PHOTO: GETTY IMAGES
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221022_dap338.jpg)PHOTO: GETTY IMAGES
 
 As the European Union races to restock gas supplies ahead of the winter, it has increasingly relied on liquefied natural gas ferried by super-chilled tankers, often from America, to replace the stuff piped from Russia. That has helped it fill its storage to more than 90%, already passing its target of 80% for November 1st.
 
 But now a bottleneck is choking off flows. With the continent’s limited number of regasifying terminals now running at full capacity, dozens of tankers are being forced to wait their turn. Many are circling off the coasts of Spain, which accounts for one-third of Europe’s regasification capacity, but may soon start looking for other destinations. To avoid missing the boat, next year Spain will reopen El Musel, an LNG import terminal in the Bay of Biscay that has been idle for a decade. But more bottlenecks will appear upstream: the pipeline linking Iberia to northern Europe will not satiate Germany’s hunger for gas.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221022_DAM978.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221022_DAM978.jpg)
 
 #### Italy edges closer to its new government
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap344.jpg)PHOTO: REUTERS
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221022_dap344.jpg)PHOTO: REUTERS
 
 A delegation from the right-wing alliance that won Italy’s general election last month will visit president Sergio Mattarella on Friday, rounding off the consultations that precede the formation of a new government. Usually, each party sends its own delegation. But the uneasy allies want to showcase their unity and readiness to govern in coalition under Giorgia Meloni, who leads the hard-right Brothers of Italy party.
 
@@ -3260,7 +3260,7 @@ The only fly in the ointment appears to be Silvio Berlusconi, who leads the Forz
 
 #### The melancholy wit of “The Banshees Of Inisherin”
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap345.jpg)PHOTO: AP
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221022_dap345.jpg)PHOTO: AP
 
 Martin McDonagh’s last comedy drama, “Three Billboards Outside Ebbing, Missouri”, won the BAFTA for Best Film, among other awards, in 2018. The playwright-turned-filmmaker’s darkly funny follow-up, which is released in cinemas on Friday, “The Banshees Of Inisherin”, is too mysterious and melancholy to earn as many prizes. Yet it is sure to win a cult following.
 
@@ -3270,7 +3270,7 @@ Mr McDonagh has recast the stars of his debut movie, “In Bruges”, Colin Farr
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_37_24.jpeg)Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 BST on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_37_24.jpeg)Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 BST on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
 Friday: Which famous river has two major tributaries, the White and the Blue?
 
@@ -3280,7 +3280,7 @@ Thursday: Which newspaper group was acquired by crooked businessman Robert Maxwe
 
 #### The winners of last week’s crossword
 
-![img](https://cdn.espresso.economist.com/files/public/images/Espressocrossword_6.jpg)Thank you to everyone who took part in our new weekly crossword, published in the weekend edition of Espresso. The winners, chosen at random from each continent, were:
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/Espressocrossword_6.jpg)Thank you to everyone who took part in our new weekly crossword, published in the weekend edition of Espresso. The winners, chosen at random from each continent, were:
 
 Asia: Sudhir Babu, Bengaluru, India
 
@@ -3421,7 +3421,7 @@ The film traces the lives of the men, women and children brought to America aboa
 
 #### Weekend profile: John Fetterman, Pennsylvania’s Democratic Senate nominee
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap347.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221022_dap347.jpg)
 
 PHOTO: AP
 
@@ -3439,7 +3439,7 @@ A bigger concern is his health: Mr Fetterman had a stroke in May. Since then he 
 
 #### Weekly crossword
 
-![img](https://cdn.espresso.economist.com/files/public/images/EspressoCrosswordpic_2.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/EspressoCrosswordpic_2.jpg)
 
 Our crossword is designed for experienced cruciverbalists and newcomers alike. Both sets of clues give the same answers, all of which feature in articles in this week’s edition of The Economist:
 
@@ -3465,11 +3465,11 @@ Factual clues
 
 3 across Where one of the biggest genetic studies of Neanderthals has just been published (6)
 
-![img](https://cdn.espresso.economist.com/files/public/images/XwordGrid_11_656_10.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/XwordGrid_11_656_10.jpg)
 
 #### The winners of this week’s quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/20220218_OPD004_hq_54.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20220218_OPD004_hq_54.jpg)
 
 Thank you to everyone who took part in this week’s quiz. The winners, chosen at random from each continent, were:
 
@@ -3525,17 +3525,17 @@ Salman Rushdie lost the sight in one eye and the use of one hand during a knife 
 
 #### India’s pollution season
 
-![img](https://cdn.espresso.economist.com/files/public/images/Indiasmog.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/Indiasmog.jpg)
 
 The Hindu festival of Diwali, which this year falls on Monday, celebrates the victory of light over darkness. But for large parts of northern India, it also heralds the start of something dark: pollution season. In autumn and winter India’s air becomes increasingly toxic as the Himalayas trap the emissions of the 600m people who populate the sprawling Indo-Gangetic Plain. Sources of contamination are manifold. Some comes from industry and transport; some from farmers burning crop waste; and some from homes burning biomass for fuel.
 
 India’s government has not ignored air pollution but struggles to control the smog. The pandemic did provide some respite. In Delhi, the capital, levels of PM2.5, the most dangerous particles, improved by 20% in the past three years compared with the pre-pandemic average. But the worry is that as India’s economy returns to normality, so will pollution. Even before Diwali Delhi’s air has become dangerously unhealthy.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221029_DAC495.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221029_DAC495.jpg)
 
 #### Britain’s next prime minister
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap362.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221022_dap362.jpg)
 
 PHOTO: ALAMY
 
@@ -3545,7 +3545,7 @@ Boris Johnson, prime minister until September when he was forced out over a stri
 
 #### The Trump Organization on trial
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap359.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221022_dap359.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -3555,7 +3555,7 @@ America’s former president is not on trial this time. But he faces separate ci
 
 #### Peace talks in Ethiopia’s civil war
 
-![img](https://cdn.espresso.economist.com/files/public/images/Tigray2.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/Tigray2.jpg)
 
 At first glance it appears to be a breakthrough. Nearly two years into a devastating and bloody civil war, representatives from Ethiopia’s government and the embattled Tigray region will meet on Monday in South Africa. Convened by the African Union, these are the first official peace talks since the war began. They come as Ethiopian federal troops and their Eritrean allies advance steadily towards Mekele, Tigray’s capital.
 
@@ -3565,7 +3565,7 @@ The Tigrayans’ scepticism is warranted. Abiy has yet to demonstrate he is seri
 
 #### Qatar’s Art Mill Museum
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221022_dap355.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221022_dap355.jpg)
 
 PHOTO: QATAR MUSEUMS
 
@@ -3575,7 +3575,7 @@ Football will be the focus of attention in Qatar when the World Cup is held ther
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_63.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_63.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 BST on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -3617,7 +3617,7 @@ Yangtze Memory Technologies Co, a Chinese chip company that is a darling of Beij
 
 #### Germany marshals a recovery for Ukraine
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap302.jpg)PHOTO: GETTY IMAGES
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221029_dap302.jpg)PHOTO: GETTY IMAGES
 
 Dithering over delivering arms to Ukraine has damaged Germany’s international image. But the chancellor, Olaf Scholz, seems to have got with the programme. Keen to show that Germany, currently the president of the G7, is pulling its weight on other fronts, he will co-host an international conference in Berlin on Tuesday on the recovery, reconstruction and modernisation of Ukraine.
 
@@ -3627,17 +3627,17 @@ Mr Shmyhal demands that frozen Russian assets, worth up to $500bn, be used to fi
 
 #### A spooky week for Big Tech
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap306.jpg)PHOTO: ALAMY
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221029_dap306.jpg)PHOTO: ALAMY
 
 Alphabet and Microsoft will kick off a nervous earnings quarter for tech firms when they report their latest results on Tuesday. Tech enjoyed a stellar 2021 as covid forced people to go online to work, shop and play. This year it has fallen back to Earth. Inflation, war and broken supply chains have darkened the economic outlook. A strong dollar has made things harder still for American exporters. Most of Silicon Valley is freezing recruitment and trimming budgets.
 
 Last week Snap spooked markets when it reported wilting demand for digital advertising on Snapchat, its social-media app. Alphabet, Google’s parent company, relies on ads too, though its business has so far proved more resilient. Microsoft has a strong cloud-computing division but must reckon with falling PC sales. Later this week Amazon, Apple and Meta will also announce their earnings. For some anxious investors, it feels as if Halloween is coming early.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221029_DAC502.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221029_DAC502.jpg)
 
 #### Pennsylvania’s one Senate debate
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap301.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221029_dap301.jpg)
 
 PHOTO: AP
 
@@ -3647,7 +3647,7 @@ Mr Fetterman has never been a strong debater, but voters will be watching him ke
 
 #### What’s the plan for Italy?
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap308.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221029_dap308.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -3657,7 +3657,7 @@ Ms Meloni’s cabinet, which she named on Saturday, reflects the rigorously cons
 
 #### Guillermo del Toro’s monster mash
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap305.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221029_dap305.jpg)
 
 PHOTO: KEN WORONER/NETFLIX
 
@@ -3667,7 +3667,7 @@ Each episode has a different director and a different setting in 20th-century Am
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_37_26.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_37_26.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 BST on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -3741,7 +3741,7 @@ House-price growth in America decelerated in August at its fastest pace since tr
 
 #### Duplicity in the desert
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap314.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221029_dap314.jpg)
 
 PHOTO: REUTERS
 
@@ -3751,7 +3751,7 @@ America has not sent government delegates (they say they didn’t want to, while
 
 #### Thailand legalises abortion
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap317.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221029_dap317.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -3759,11 +3759,11 @@ As several countries tighten access to abortions, Thailand is doing the opposite
 
 But in 2020 Thailand’s constitutional court ruled that banning abortion violated equal rights for men and women as well as the rights to life and liberty. Last year, as a first step, the government legalised procedures performed during the first trimester of pregnancy. From Thursday women who are no more than 20 weeks into their pregnancies will be able to seek abortions in 110 public hospitals and clinics across the country, after consultation with a doctor.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221029_DAM905.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221029_DAM905.jpg)
 
 #### Rishi Sunak’s unflashy start as prime minister
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap322.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221029_dap322.jpg)
 
 PHOTO: EPA
 
@@ -3773,7 +3773,7 @@ His cabinet is stuffed with former ministers, many keeping or returning to their
 
 #### Deutsche Bank still cannot find its stride
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap318.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221029_dap318.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -3783,7 +3783,7 @@ But that has not assuaged investors spooked by continued legal troubles (police 
 
 #### The art of climate protest
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap319.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221029_dap319.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -3793,7 +3793,7 @@ Their stunts—which also included splattering soup over Van Gogh’s “Sunflow
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_37_27.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_37_27.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 BST on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -3839,7 +3839,7 @@ Britain’s new government delayed the announcement of its fiscal plan—which w
 
 #### A superficial rebound for America’s economy
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap328.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221029_dap328.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -3847,11 +3847,11 @@ Technically, it will look great. Data on Thursday are expected to show that in t
 
 Viewed in more detail, the economic picture is less reassuring. Arithmetically, strong imports were a drag on GDP at the start of the year. More recently, imports have weakened, reflecting more sluggish domestic demand. Counter-intuitively, that makes GDP growth appear stronger now since fewer American dollars are going abroad. That does not mean that America is in a recession yet. But it does signal that it is losing steam.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221029_DAC548.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221029_DAC548.jpg)
 
 #### Putin’s propaganda parley
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap326.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221029_dap326.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -3861,7 +3861,7 @@ Last year Mr Putin treated attendees to a wide-ranging three-hour-long discussio
 
 #### The ECB grapples with a rate decision
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap331.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221029_dap331.jpg)
 
 PHOTO: DAVE SIMONDS
 
@@ -3873,7 +3873,7 @@ A final consideration is wage growth. Employers and workers have struck mostly m
 
 #### Credit Suisse unveils its survival plan
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap327.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221029_dap327.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -3883,7 +3883,7 @@ Adding to the turmoil, its top management ranks have been in a state of flux. Ti
 
 #### The populist’s guide to getting ahead
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap330.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221029_dap330.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -3893,7 +3893,7 @@ But Mr Netanyahu’s motivation for picking up a pen is not altruistic. Instead,
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_37_28.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_37_28.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 BST on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -3937,17 +3937,17 @@ Stormont, Northern Ireland’s parliament, has been recalled in an eleventh-hour
 
 #### Meta’s unhappy anniversary
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap332.jpg)PHOTO: GETTY IMAGES
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221029_dap332.jpg)PHOTO: GETTY IMAGES
 
 One year ago on Friday Mark Zuckerberg changed the name of his company from Facebook to Meta. Under that new banner just about everything has gone wrong. Earlier this year the company reported its first year-on-year drop in quarterly revenue and the first decline in users of Facebook, its social network. Investors hoped it was a blip. But on Wednesday Meta said quarterly revenue had fallen again, by 4%, and predicted it would drop in the next quarter too. In response the company’s share price plunged by nearly a quarter.
 
 But these are mere Earthly problems. Mr Zuckerberg believes his company’s future lies in the metaverse, an online space to work, play and watch ads. Meta has spent tens of billions of dollars building it. But fewer than 200,000 people reportedly use Meta’s flagship metaverse app. One day the metaverse may take off. The question is whether Meta, which has lost more than 70% of its market value this year, will still be around then.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221029_DAC398.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221029_DAC398.jpg)
 
 #### The beat of a different drum in Pakistan
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap337.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221029_dap337.jpg)
 
 PHOTO: REUTERS
 
@@ -3957,7 +3957,7 @@ Mr Khan’s march adds to Pakistan’s other political and economic woes. Massiv
 
 #### More gushing profits for Exxon
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap335.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221029_dap335.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -3967,7 +3967,7 @@ Now gas prices have receded but oil prices are up again, boosted by a big cut to
 
 #### Northern Ireland heads to elections, again
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap334.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221029_dap334.jpg)
 
 PHOTO: PA
 
@@ -3977,7 +3977,7 @@ Both parties are expected to consolidate their positions with voters. Whichever 
 
 #### When Harry Met Harry
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap336.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221029_dap336.jpg)
 
 PHOTO: AP
 
@@ -3987,7 +3987,7 @@ The film is anxious to mark itself apart from heterosexual smash hits, making co
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_37_29.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_37_29.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 BST on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -3997,7 +3997,7 @@ Thursday: Which American swimmer was the star of a series of “aquamusicals” 
 
 #### The winners of last week’s crossword
 
-![img](https://cdn.espresso.economist.com/files/public/images/Espressocrossword_7.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/Espressocrossword_7.jpg)
 
 Thank you to everyone who took part in our new weekly crossword, published in the weekend edition of Espresso. The winners, chosen at random from each continent, were:
 
@@ -4049,7 +4049,7 @@ ExxonMobil reported a record profit, of $19.7bn, up by a tenth from the previous
 
 #### A concerning countdown to COP27
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap340.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221029_dap340.jpg)
 
 PHOTO: REUTERS
 
@@ -4057,11 +4057,11 @@ Next month countries gather for the United Nations’ climate summit in Egypt. I
 
 A report from Systems Change Lab, a collection of environmental groups and think-tanks, found that of 40 actions needed to meet 2030 targets—such as changing energy systems and land use—none are on track. There was one bright spot: a report from the International Energy Agency found that war in Ukraine has hastened the world’s transition to renewable energy.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221105_DAC537.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221105_DAC537.jpg)
 
 #### Barack Obama rallies Democrats
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap342_0.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221029_dap342_0.jpg)
 
 PHOTO: REUTERS
 
@@ -4071,7 +4071,7 @@ Mr Obama’s hectic campaigning spree is rare: in recent years he has devoted hi
 
 #### Mexicans celebrate Day of the Dead
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap341.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221029_dap341.jpg)
 
 PHOTO: REUTERS
 
@@ -4081,7 +4081,7 @@ Day of the Dead is rooted in pre-Hispanic cultures. People place food, sugar sku
 
 #### The horrors of the first world war, on film
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap339.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221029_dap339.jpg)
 
 On Friday Netflix released “All Quiet on the Western Front”, a film based on the novel by Erich Maria Remarque that was published in 1929. It is the first German adaption of the anti-war classic, which is more topical than ever at a time when conflict is again raging in Europe.
 
@@ -4089,7 +4089,7 @@ The story recounts how, in the spring of 1917, a 17-year-old German soldier, Pau
 
 #### Weekend profile: Li Qiang, China’s probable next prime minister
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap343.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221029_dap343.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -4103,7 +4103,7 @@ Mr Li is liked by many businessmen, but foreign investors were spooked by the re
 
 #### This week’s quiz winners
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_37_30.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_37_30.jpeg)
 
 Thank you to everyone who took part in this week’s quiz. The winners, chosen at random from each continent, were:
 
@@ -4125,7 +4125,7 @@ Check back on Monday for the beginning of next week’s edition, and your chance
 
 #### Weekly crossword
 
-![img](https://cdn.espresso.economist.com/files/public/images/Espressocrossword_8.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/Espressocrossword_8.jpg)
 
 Our crossword is designed for experienced cruciverbalists and newcomers alike. Both sets of clues give the same answers, all of which feature in articles in this week’s edition of The Economist.
 
@@ -4151,7 +4151,7 @@ Factual clues
 
 3 across It can be public or private? (6)
 
-![img](https://cdn.espresso.economist.com/files/public/images/XwordGrid_12_656_3.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/XwordGrid_12_656_3.jpg)
 
 > **The reward for work well done is the opportunity to do more.**
 >
@@ -4188,7 +4188,7 @@ Two car-bombs killed at least 100 people in Mogadishu, Somalia’s capital, said
 
 #### New Italian government, familiar economic problems
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap352.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221029_dap352.jpg)
 
 PHOTO: REUTERS
 
@@ -4198,7 +4198,7 @@ The energy-driven inflation affecting the whole of Europe is among several econo
 
 #### Affirmative action’s last stand
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap350.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221029_dap350.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -4208,7 +4208,7 @@ Students for Fair Admissions, the plaintiff in both suits, is the brainchild of 
 
 #### Hong Kong’s financial summit mired in covid
 
-![img](https://cdn.espresso.economist.com/files/public/images/hongkong.png)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/hongkong.png)
 
 PHOTO: AFP
 
@@ -4218,7 +4218,7 @@ It will be a hard sell. Hong Kong is still physically isolated from mainland Chi
 
 #### Ukraine’s grain: stuck at port, again
 
-![img](https://cdn.espresso.economist.com/files/public/images/graindeal.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/graindeal.jpg)
 
 PHOTO: AFP
 
@@ -4226,11 +4226,11 @@ Not a single ship packed with grain and other foodstuffs was able to leave Ukrai
 
 Since early August, when the deal came into effect, Ukraine has been able to export more than 9m tonnes of grain, saving its farmers from bankruptcy. The agreement has also eased a global food shortage, brought down prices and prevented some 100m people from falling into extreme poverty, according to the UN. Its collapse would undo many of those gains. It may also expose Ukraine’s ports, whose waters have been de-mined to allow ships to pass, to new Russian attacks.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221105_DAC579.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221105_DAC579.jpg)
 
 #### Meret Oppenheim’s storm in a teacup
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221029_dap351.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221029_dap351.jpg)
 
 PHOTO: 2021 ARTISTS RIGHTS AGENCY, NEW
 
@@ -4240,7 +4240,7 @@ Meret Oppenheim was 22 and chatting with Pablo Picasso and Dora Maar in a Paris 
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/20220218_OPD004_hq_55.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20220218_OPD004_hq_55.jpg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 BST on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -4288,7 +4288,7 @@ Shanghai Disney abruptly locked its gates to contain a covid-19 outbreak, trappi
 
 #### What Lula’s win means for Brazil
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap302.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221105_dap302.jpg)
 
 PHOTO: DPA
 
@@ -4298,7 +4298,7 @@ After a campaign marked by violence and fake news, Lula must pacify a fractured 
 
 #### Another election in Israel
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap301.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221105_dap301.jpg)
 
 PHOTO: AP
 
@@ -4308,7 +4308,7 @@ Under Israel’s proportional-representation system, no single party has ever wo
 
 #### The bad business models of digital darlings
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap305.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221105_dap305.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -4318,7 +4318,7 @@ Some of those born after the dotcom crash of 2001 seem particularly vulnerable. 
 
 #### The Arab League meets
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap303_2.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221105_dap303_2.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -4326,11 +4326,11 @@ PHOTO: GETTY IMAGES
 
 Unlike other regional bodies, the League has no common market or currency, and no peace-keeping force. It also has little consensus. Arab leaders disagree on Iran, Libya, disputed Western Sahara and relations with Israel and Palestine. To find some common ground the League’s chairman, Ahmed Aboul Gheit, has suggested a focus on food security and other issues caused by Russia’s war in Ukraine. But even that leads to rancour. While energy producers celebrate booming economies caused by high prices, consumer countries are crashing into recession. More beleaguered than League, perhaps.
 
-![img](https://cdn.espresso.economist.com/files/public/images/ArabLeaguemap.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/ArabLeaguemap.jpg)
 
 #### George Balanchine’s life and art
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap304.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221105_dap304.jpg)
 
 PHOTO: ALAMY
 
@@ -4340,7 +4340,7 @@ Ms Homans explores both the technical details of Balanchine’s craft and the me
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_64.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_64.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 BST on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -4381,7 +4381,7 @@ Uber’s share price leapt by more than a tenth after the ride-sharing firm said
 
 #### Another jumbo rate rise from the Fed
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap311.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221105_dap311.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -4389,11 +4389,11 @@ America’s Federal Reserve is widely expected to raise interest rates by three-
 
 Given that markets have priced in the rate increase, the focus will be on what Jerome Powell, the Fed’s chairman, says in a subsequent news conference. Look for hints about whether he is ready to slow the pace of tightening, perhaps teeing the Fed up for a half-point rate increase at its next meeting in December. But he will also no doubt explain that future decisions depend on data, leaving the Fed wriggle room to deliver yet another jumbo rate rise if inflation remains uncomfortably high.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221105_DAC607.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221105_DAC607.jpg)
 
 #### Africa’s energy problem
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap312.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221105_dap312.jpg)
 
 PHOTO: ALAMY
 
@@ -4405,7 +4405,7 @@ If Africa is to grow richer, its energy use must increase. Renewable energy is e
 
 #### Infrastructure disasters in India
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap308.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221105_dap308.jpg)
 
 PHOTO: AP
 
@@ -4415,7 +4415,7 @@ Oreva, the company which operates the bridge, has blamed people for swaying the 
 
 #### A spyware scandal in Greece
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap309.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221105_dap309.jpg)
 
 PHOTO: REUTERS
 
@@ -4425,7 +4425,7 @@ A Greek parliamentary inquiry ended abruptly last month after government MPs blo
 
 #### British prime ministers on screen
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap310_1.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221105_dap310_1.jpg)
 
 PHOTO: ALAMY
 
@@ -4435,7 +4435,7 @@ Whereas cinema’s American presidents are often noble and brave, British prime 
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_65.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_65.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 BST on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -4477,7 +4477,7 @@ Maersk warned that container demand was weakening as concerns about recession un
 
 #### Scholz’s China strategy
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap318.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221105_dap318.jpg)
 
 PHOTO: AFP
 
@@ -4487,11 +4487,11 @@ After he was elected in 2021 Mr Scholz committed in his coalition agreement to r
 
 Mr Scholz is travelling with a dozen chief executives of German blue-chip companies, who want to produce more in China or buy more critical minerals to make cars. And he recently agreed to a controversial sale of a stake in a container terminal in Hamburg to a Chinese state-run shipping company. Less an assertive new Scholz strategy this signals a continuation of the soft stance on China of Angela Merkel, his predecessor.
 
-![img](https://cdn.espresso.economist.com/files/public/images/Germanychart.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/Germanychart.jpg)
 
 #### Donald Trump in Iowa
 
-![img](https://cdn.espresso.economist.com/files/public/images/ESPaw031122.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/ESPaw031122.jpg)
 
 Historically, Iowa was one of America’s swing states, but these days it is reliably red. Nevertheless Donald Trump, a former president, will be in Sioux City on Thursday hosting a rally with Chuck Grassley, the state’s 89-year-old Republican senator, and Kim Reynolds, the Republican governor, ahead of the midterms on November 8th.
 
@@ -4501,7 +4501,7 @@ Asked in October about running for president, Mr Trump said he will “probably 
 
 #### The Bank of England’s interest rate decision
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap317.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221105_dap317.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -4513,7 +4513,7 @@ It is unclear yet whether inflation associated with higher energy prices will pr
 
 #### Lula’s choice for Petrobras
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap319.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221105_dap319.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -4525,7 +4525,7 @@ Lula’s relationship with Petrobras will be closely watched for repeats of mist
 
 #### David Hockney continues to bloom
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap320.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221105_dap320.jpg)
 
 PHOTO: © DAVID HOCKNEY
 
@@ -4537,7 +4537,7 @@ Four concurrent exhibitions of his work, entitled “20 Flowers and Some Bigger 
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_66.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_66.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 BST on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -4579,7 +4579,7 @@ Fact of the day:
 
 #### America’s job market comes off the boil
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap327.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221105_dap327.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -4589,7 +4589,7 @@ President Joe Biden and the Democrats would prefer to see a stronger jobs report
 
 #### Disunited Russia
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap329.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221105_dap329.jpg)
 
 PHOTO: AP
 
@@ -4597,11 +4597,11 @@ On Friday Russia celebrates Unity Day, a national holiday commemorating Moscow�
 
 In truth, to invade Ukraine was a choice made by Mr Putin. On Monday he claimed that the “partial mobilisation” of troops to Ukraine was complete. But recruitment could restart at his whim. Some Russians should be more concerned than others. Studies suggest that the conscription drive disproportionately affected poorer parts of the country. Many recruits also come from places with large ethnic-minority populations like Dagestan, a Muslim-majority republic in the south and Buryatia, an ethnic-Mongolian region in the east. Although Mr Putin preaches national unity, not all Russians are treated equally.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221105_DAC463_0.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221105_DAC463_0.jpg)
 
 #### The pope’s visit to Bahrain
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap331.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221105_dap331.jpg)
 
 PHOTO: AP
 
@@ -4613,7 +4613,7 @@ The state is less tolerant with its own citizens. An oppressed Shia majority com
 
 #### A climate clash for Sunak
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap326.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221105_dap326.jpg)
 
 PHOTO: AP
 
@@ -4623,7 +4623,7 @@ Alongside foreign dignitaries, such as America’s climate envoy, John Kerry, wi
 
 #### “Weird Al” Yankovic’s irreplicable success
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap324_0.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221105_dap324_0.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -4633,7 +4633,7 @@ Despite competition on social media, Mr Yankovic is still the king of musical co
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_67.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_67.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 BST on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -4643,7 +4643,7 @@ Thursday: Which film noir, released in 1941 and starring Humphrey Bogart, was ba
 
 #### The winners of last week’s crossword
 
-![img](https://cdn.espresso.economist.com/files/public/images/Crossword_7.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/Crossword_7.jpg)
 
 Thank you to everyone who took part in our new weekly crossword, published in the weekend edition of Espresso. The winners, chosen at random from each continent, were:
 
@@ -4691,7 +4691,7 @@ Stocks across Asia rose amid reports that China might relax its stringent covid-
 
 #### The battle for Pennsylvania
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap338.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221105_dap338.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -4703,7 +4703,7 @@ Whether the race has narrowed because establishment Republicans have “come hom
 
 #### Campaign season begins in Malaysia
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap349.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221105_dap349.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -4713,7 +4713,7 @@ The coalition of the historic ruling party, UMNO, has the best shot at forming a
 
 #### A rugby tournament returns to Hong Kong
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap335.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221105_dap335.jpg)
 
 PHOTO: EPA
 
@@ -4723,7 +4723,7 @@ The government’s original hair-brained scheme for the spectacularly boozy even
 
 #### Contemporary art among the pyramids
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap336.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221105_dap336.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -4733,7 +4733,7 @@ Art D’Égypte, the organiser, sought participation from 12 artists from around
 
 #### Weekend profile: Kari Lake, Arizona’s Republican candidate for governor
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap339.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221105_dap339.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -4747,7 +4747,7 @@ Critics spy opportunism in Ms Lake’s recent political awakening. She says no p
 
 #### Weekly crossword
 
-![img](https://cdn.espresso.economist.com/files/public/images/crossword_4.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/crossword_4.jpg)
 
 Our crossword is designed for experienced cruciverbalists and newcomers alike. Both sets of clues give the same answers, all of which feature in articles in this week’s edition of The Economist.
 
@@ -4773,11 +4773,11 @@ Factual clues
 
 3 across Where even a recession might not reduce inflation (6)
 
-![img](https://cdn.espresso.economist.com/files/public/images/XwordGrid_12_6560.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/XwordGrid_12_6560.jpg)
 
 #### The winners of this week’s quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/20220221_OPD004_41.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20220221_OPD004_41.jpg)
 
 Thank you to everyone who took part in this week’s quiz. The winners, chosen at random from each continent, were:
 
@@ -4829,7 +4829,7 @@ Researchers in Britain conducted the first transfusion of lab-grown blood to hum
 
 #### What’s at stake in America’s midterms?
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap347.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221105_dap347.jpeg)
 
 PHOTO: REUTERS
 
@@ -4839,7 +4839,7 @@ But American democracy is being questioned by some Republicans. A big theme of t
 
 #### A turbulent time for global trade
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap350.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221105_dap350.jpeg)
 
 PHOTO: PA
 
@@ -4849,7 +4849,7 @@ But troubles loom. Over the coming year growth is expected to slow sharply; Amer
 
 #### How Western weapons are helping Ukraine
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap351_recrop.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221105_dap351_recrop.jpeg)
 
 PHOTO: EPA
 
@@ -4859,7 +4859,7 @@ Such weapons are helping Ukraine protect itself. On October 10th, nearly half of
 
 #### Pharmaceutical firms’ uncertain post-pandemic future
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap348.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221105_dap348.jpeg)
 
 PHOTO: GETTY IMAGES
 
@@ -4869,7 +4869,7 @@ Moderna, Pfizer and BioNTech have increased the prices of their covid-19 product
 
 #### “Bardo” and the burdens of creation
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221105_dap352.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221105_dap352.jpeg)
 
 PHOTO: COURTESY OF NETFLIX
 
@@ -4879,7 +4879,7 @@ Silverio Gama, the film’s fictional documentarian, finds that success does not
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/EspressoQuiz2022_1.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/EspressoQuiz2022_1.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 BST on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -4923,7 +4923,7 @@ China reported more than 5,600 new covid-19 cases on Monday, its highest caseloa
 
 #### America’s midterm election day
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap303.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221112_dap303.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -4933,7 +4933,7 @@ Though Democrats are buoyed by support for abortion rights, they are burdened by
 
 #### India and Russia’s mutual admiration
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap305.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221112_dap305.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -4943,7 +4943,7 @@ In September, after months of silence, Narendra Modi, India’s prime minister, 
 
 #### Blockbuster meme stocks have a difficult next act
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap306.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221112_dap306.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -4953,7 +4953,7 @@ The hype is now fizzling out. Shares are trading below $6. Revenue has been reco
 
 #### Financial fault lines at COP27
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap310_0.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221112_dap310_0.jpg)
 
 PHOTO: AP
 
@@ -4961,11 +4961,11 @@ On Tuesday Gaston Browne, the prime minister of Antigua and Barbuda, will addres
 
 Arguments over money will be at the heart of this year’s conference. Rich countries have long promised to provide poor ones with $100bn in climate finance a year by 2020—a goal which has still not been met. Poor countries have increasingly been calling for “loss and damage” funding to help them offset the damage they have already incurred as a result of climate change. For the first time the topic is on the formal agenda, after heated arguments about it delayed the start of the summit by hours. But large economies like America hate the idea, and any serious resolution remains unlikely.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221112_DAC396.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221112_DAC396.jpg)
 
 #### How HBO changed television
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap307.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221112_dap307.jpg)
 
 PHOTO: ALAMY
 
@@ -4975,7 +4975,7 @@ Capitalising on this freedom, HBO started developing original dramas; creations 
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_68.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_68.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 BST on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -5017,7 +5017,7 @@ Disney said its streaming service added 12.1m subscribers in the three months th
 
 #### A red ripple across America
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap313.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221112_dap313.jpg)
 
 PHOTO: AP
 
@@ -5029,7 +5029,7 @@ That is not an unusual outcome in midterm elections, where voters typically puni
 
 #### A new chief justice in India
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap319.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221112_dap319.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -5041,7 +5041,7 @@ Many Indians hope Mr Chandrachud can make the court a more effective counterweig
 
 #### The costs of China’s zero-covid policy
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap320.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221112_dap320.jpg)
 
 PHOTO: AP
 
@@ -5051,11 +5051,11 @@ But even as investors contemplate a loosening of fetters in the future, China’
 
 This domestic weakness is all the more troubling because foreign demand for China’s goods is also faltering. The country’s exports shrank last month in dollar terms. When China eventually relaxes its zero-covid policy, it will be opening up to a global economy retreating into its shell.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221112_DAC684.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221112_DAC684.jpg)
 
 #### France’s new defence policy
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap324.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221112_dap324.jpg)
 
 PHOTO: AFP
 
@@ -5065,7 +5065,7 @@ The speech will include some novelties nonetheless. Mr Macron will announce the 
 
 #### “The Crown” is back
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap316.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221112_dap316.jpg)
 
 PHOTO: NETFLIX
 
@@ -5075,7 +5075,7 @@ Now that he has finally ascended to the throne, the timing of the series for Kin
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_69.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_69.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 BST on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -5117,7 +5117,7 @@ The International Monetary Fund provisionally agreed to a $4.5bn programme to su
 
 #### The Republican Party after the midterms
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap334.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221112_dap334.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -5129,7 +5129,7 @@ In Washington, a Republican-controlled House will do little legislating and hold
 
 #### What the midterms mean for business
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap339.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221112_dap339.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -5139,7 +5139,7 @@ America Inc will not be spared from heavy-handed government, though. The GOP wil
 
 #### Britain’s winter of discontent
 
-![img](https://cdn.espresso.economist.com/files/public/images/ESPaw101122.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/ESPaw101122.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -5151,7 +5151,7 @@ Unions’ chief demand is for pay rises to reflect inflation, which reached a 40
 
 #### A billion-dollar art auction
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap333.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221112_dap333.jpg)
 
 Founding Microsoft, with Bill Gates in 1975, made Paul Allen a billionaire many times over. Much of this fortune was spent on environmental, scientific and philanthropic endeavours. Some of it paid for yachts and sumptuous villas. And Allen, who died in 2018, also accumulated a particularly fine art collection. Mixing contemporary works with 19th-century masterpieces, among the treasures are a pointilliste painting by Georges Seurat, a landscape of Mont Sainte-Victoire by Paul Cézanne, a self-portrait by Francis Bacon and one of J.M.W. Turner’s finest vistas of the Redentore church in Venice.
 
@@ -5159,7 +5159,7 @@ Allen’s rationale for collecting was admiration rather than investment. “You
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_70.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_70.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 BST on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -5199,7 +5199,7 @@ Elon Musk told Twitter employees at a meeting on Thursday that the social-media 
 
 #### A sombre Singles’ Day in China
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap343.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221112_dap343.jpeg)
 
 PHOTO: GETTY IMAGES
 
@@ -5207,11 +5207,11 @@ PHOTO: GETTY IMAGES
 
 Harsh covid restrictions in China have dampened consumer sentiment. For the first time in 14 years the value of Alibaba’s sales on Singles’ Day may fall, from a record 540bn yuan (then $85bn) last year to 532bn yuan, according to estimates from Bloomberg. Sporadic lockdowns across the country may even disrupt the logistics networks needed to deliver the goods. Most countries have learned to live with covid. China is doing anything but.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221112_DAC722.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221112_DAC722.jpg)
 
 #### The carbon budget crunch
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap345.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221112_dap345.jpeg)
 
 PHOTO: AP
 
@@ -5221,7 +5221,7 @@ On Friday the Global Carbon Project, a scientific consortium, will release its a
 
 #### Visions of a new world at the Paris Peace Forum
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap348.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221112_dap348.jpeg)
 
 PHOTO: GETTY IMAGES
 
@@ -5231,7 +5231,7 @@ There will, inevitably, be much discussion about how to bring the war in Ukraine
 
 #### Latin America searches for a development banker
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap344.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221112_dap344.jpeg)
 
 PHOTO: ALAMY
 
@@ -5241,7 +5241,7 @@ This time Latin America’s governments have put forward strong local candidates
 
 #### Storytelling amid censorship in Iran
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap346.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221112_dap346.jpeg)
 
 PHOTO: ©2022 JP PRODUCTION
 
@@ -5251,7 +5251,7 @@ His latest film, “No Bears”, shot in secret before his arrest and released i
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/EspressoQuiz2022_0.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/EspressoQuiz2022_0.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 BST on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -5261,7 +5261,7 @@ Thursday: Which rock star appeared with the word “slave” written on his face
 
 #### The winners of last week’s crossword
 
-![img](https://cdn.espresso.economist.com/files/public/images/EspressoCrosswordPic.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/EspressoCrosswordPic.jpeg)
 
 Thank you to everyone who took part in our new weekly crossword, published in the weekend edition of Espresso. The winners, chosen at random from each continent, were:
 
@@ -5311,7 +5311,7 @@ Acquis communautaire, the body of all EU laws, treaties and standards that candi
 
 #### So long, Kherson
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap361.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221112_dap361.jpg)
 
 PHOTO: AP
 
@@ -5324,7 +5324,7 @@ On Friday Ukrainian troops arrived in the centre of Kherson, liberating it after
 
 #### A South-East Asian club struggles for relevance
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap353.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221112_dap353.jpg)
 
 PHOTO: DPA
 
@@ -5336,7 +5336,7 @@ Still, it counts as a small ASEAN win that President Joe Biden will attend its k
 
 #### A new generation for men’s tennis
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap351.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221112_dap351.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -5346,7 +5346,7 @@ There is already a new world number one, Carlos Alcaraz, a 19-year-old Spaniard 
 
 #### The polka-dot princess in Hong Kong
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap355.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221112_dap355.jpg)
 
 PHOTO: REUTERS
 
@@ -5358,7 +5358,7 @@ With her pieces regularly fetching more than $1m at auction, “the princess of 
 
 #### Weekend profile: Alaa Abd el-Fattah, Egypt’s prisoner of conscience
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap356.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221112_dap356.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -5374,7 +5374,7 @@ Mr Abd el-Fattah’s confrontation with the Egyptian regime may now be reaching 
 
 #### Weekly crossword
 
-![img](https://cdn.espresso.economist.com/files/public/images/crossword_3.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/crossword_3.jpg)
 
 Our crossword is designed for experienced cruciverbalists and newcomers alike. Both sets of clues give the same answers, all of which feature in articles in this week’s edition of The Economist:
 
@@ -5402,13 +5402,13 @@ Cryptic clues
 
 3 across Afresh, I mingled without ecstasy, but met prime minister (6)
 
-![img](https://cdn.espresso.economist.com/files/public/images/XwordGrid_12_6560_0.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/XwordGrid_12_6560_0.jpg)
 
 
 
 #### The winners of this week’s quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/20220221_OPD004_42.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20220221_OPD004_42.jpg)
 
 Thank you to everyone who took part in this week’s quiz. The winners, chosen at random from each continent, were:
 
@@ -5464,7 +5464,7 @@ Janet Yellen, America’s treasury secretary, indicated she would quiz the head 
 
 #### Biden and Xi meet in Bali
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap364.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221112_dap364.jpg)
 
 PHOTO: REUTERS/AP
 
@@ -5476,7 +5476,7 @@ White House officials talk of “finding a floor” in the relationship. They ar
 
 #### Challenges for India’s central bank
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap366.jpg)PHOTO: GETTY IMAGES
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221112_dap366.jpg)PHOTO: GETTY IMAGES
 
 These are busy times for the Reserve Bank of India. As the rupee has depreciated against the dollar, reaching a record low in October, the central bank has intervened to stem the slide, burning through about $112bn of foreign-exchange reserves. It has also launched a pilot for a digital rupee, a central-bank digital currency.
 
@@ -5484,11 +5484,11 @@ The RBI’s biggest task, however, remains tackling inflation. Data for October,
 
 Rising prices have been driven by soaring food costs, which account for nearly half of India’s consumer-price index. But inflationary pressure may now be easing as global food inflation has slowed. The RBI’s governor is bullish: Shaktikanta Das believes that India’s fundamentals are strong, and the central bank’s regime of raising interest rates—up by 1.9 percentage points since April and expected to rise again in December—is working.
 
-![img](https://cdn.espresso.economist.com/files/public/images/IndiaInflationChart.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/IndiaInflationChart.jpg)
 
 #### Crypto’s worst days may be yet to come
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap368.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221112_dap368.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -5500,7 +5500,7 @@ The crash will have lasting reverberations. FTX was deeply entangled with the re
 
 #### The real work of COP27 begins
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap365.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221112_dap365.jpg)
 
 PHOTO: EYEVINE
 
@@ -5512,7 +5512,7 @@ The most substantive climate commitment made during COP27 will probably not be m
 
 #### “Yellowstone” returns Montana to the spotlight
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221112_dap369.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221112_dap369.jpg)
 
 PHOTO: AP
 
@@ -5522,7 +5522,7 @@ Some of the Duttons’ defence is done with assault rifles. But the family deplo
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_71.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_71.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -5564,7 +5564,7 @@ There was still no certainty about which way America’s House of Representative
 
 #### Jokowi plays statesman at the G20
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap307.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221119_dap307.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -5576,7 +5576,7 @@ Elsewhere, little progress is expected around issues of global governance. And d
 
 #### The world’s eight billionth person
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap308_1.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221119_dap308_1.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -5586,11 +5586,11 @@ The rate of growth has fallen. This year the population is forecast to have rise
 
 The global population is like a train: slam the brakes on and it stops, but only eventually. According to the UN, it will take 15 years to add the next billion people, and 21 years to reach the billion after that. The world is coming to an inflection point: the momentum of growth that has prevailed since the 1950s is being replaced by stability and stasis.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221119_DAC746.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221119_DAC746.jpg)
 
 #### Donald Trump runs again
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap311.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221119_dap311.jpg)
 
 PHOTO: AP
 
@@ -5602,7 +5602,7 @@ Mr Trump may see an advantage in entering the field ahead of Ron DeSantis, the g
 
 #### Binyamin Netanyahu’s path to power
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap309.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221119_dap309.jpg)
 
 PHOTO: EPA
 
@@ -5612,7 +5612,7 @@ Mr Netanyahu has been endorsed by a majority of the Knesset’s incoming members
 
 #### Walmart rides the inflation rollercoaster
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap310.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221119_dap310.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -5622,7 +5622,7 @@ Since then the firm has staged a robust recovery. Its share price is back where 
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_72.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_72.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -5664,7 +5664,7 @@ Alaa Abd el-Fattah, Egypt’s most high-profile political prisoner, ended the hu
 
 #### China changes direction
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap317.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221119_dap317.jpg)
 
 PHOTO: ALAMY
 
@@ -5674,11 +5674,11 @@ Quarantine times for inbound travellers and close contacts of those testing posi
 
 Loosened covid restrictions could lead to widespread outbreaks. In cities such as Guangzhou cases are already rising rapidly. It is unclear yet how authorities will deal with this. Easing in the property sector will stop defaults but this does not guarantee people will buy new homes in droves. A boost to economic growth could be a way off.
 
-![img](https://cdn.espresso.economist.com/files/public/images/ChinaGDPWed.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/ChinaGDPWed.jpg)
 
 #### Vladimir Putin’s ghost at the G20
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap319.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221119_dap319.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -5690,7 +5690,7 @@ Many countries feel they are paying for a conflict that does not concern them. �
 
 #### America’s Respect for Marriage Act
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap320.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221119_dap320.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -5702,7 +5702,7 @@ Few Senate Republicans publicly support the bill. But Democrats say they have en
 
 #### NASA prepares for take-off, again
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap316.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221119_dap316.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -5712,7 +5712,7 @@ More recently the rocket was left out during Hurricane Nicole on November 10th, 
 
 #### Maradona’s “hand of God” ball at auction
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap314.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221119_dap314.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -5722,7 +5722,7 @@ The sale will make Ali Bin Nasser, the Tunisian who refereed the match (but did 
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_73.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_73.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -5766,7 +5766,7 @@ Elon Musk said he would reduce his time at Twitter and eventually install a new 
 
 #### Indonesia’s economy is ready to boom
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap329.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221119_dap329.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -5778,7 +5778,7 @@ Joko Widodo, Indonesia’s president, has managed the economy well, keeping gove
 
 #### Britain’s autumn budget
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap330.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221119_dap330.jpg)
 
 PHOTO: DAVE SIMONDS
 
@@ -5788,11 +5788,11 @@ The backdrop is Britain’s deteriorating economic outlook, rising interest rate
 
 Much of the total will come from squeezing spending on public services. That is unwelcome news for those already concerned about cracks in health services and elsewhere. Current budgets are being eaten away by rising costs. Strikes over wages are looming, too. Household finances are already stretched. Two months ago Mr Hunt’s predecessor recklessly promised tax cuts. Now tax increases are on the cards, though they may only happen slowly as thresholds are frozen. Mr Hunt will argue that his fiscal medicine is necessary. But it will not go down easily.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221119_DAC796.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221119_DAC796.jpg)
 
 #### Burberry’s buoyant six months
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap325.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221119_dap325.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -5804,7 +5804,7 @@ The brand’s future, however, lies closer to Beijing than Bradford. Burberry ma
 
 #### A new leader for America’s Catholics
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap328.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221119_dap328.jpg)
 
 PHOTO: AP
 
@@ -5816,7 +5816,7 @@ The conference is out of step with many American Catholics. According to Pew Res
 
 #### The Latin Grammy Awards
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap327.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221119_dap327.jpg)
 
 PHOTO: REUTERS
 
@@ -5826,7 +5826,7 @@ On Thursday, at the Latin Grammy Awards in Las Vegas, the acts will probably win
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_74.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_74.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -5874,7 +5874,7 @@ Correction: Thursday’s fact of the day stated that there are forecast to be 30
 
 #### COP creeps towards a conclusion
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap343.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221119_dap343.jpg)
 
 PHOTO: AP
 
@@ -5886,7 +5886,7 @@ The biggest dispute is over a “loss-and-damage” fund. Poor countries are dem
 
 #### APEC meets in Bangkok
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap337.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221119_dap337.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -5898,7 +5898,7 @@ The second worry is whether America and China, the two biggest APEC members, can
 
 #### Russia’s G20 hangover
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap341.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221119_dap341.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -5908,7 +5908,7 @@ Western leaders at the G20 made clear their fury at Russia’s invasion of Ukrai
 
 #### Brazil’s new era of diplomacy
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap339.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221119_dap339.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -5916,11 +5916,11 @@ Luiz Inácio Lula da Silva will not be inaugurated as Brazil’s president—an 
 
 Lula’s approach to environmental and foreign policy is markedly different from that of Jair Bolsonaro, the right-wing populist he beat in October’s election. Mr Bolsonaro did not attend the previous two COP summits and, on his watch, deforestation in the Amazon spiked by 73% between 2018 and 2021. Whereas Mr Bolsonaro discouraged foreign help to protect the rainforest, Lula has asked for it. That is already paying off: after Lula’s election, Germany and Norway said they would once again contribute to the “Amazon Fund” of money used by Brazil for conservation.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221119_DAC805.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221119_DAC805.jpg)
 
 #### The Weinstein scandal on film
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap344.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221119_dap344.jpg)
 
 PHOTO: AP
 
@@ -5932,7 +5932,7 @@ This explosive story deserved a less conventional telling. But it makes some sha
 
 #### The winners of last week’s crossword
 
-![img](https://cdn.espresso.economist.com/files/public/images/Crossword_8.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/Crossword_8.jpg)
 
 Thank you to everyone who took part in our weekly crossword, published in the weekend edition of Espresso. The winners, chosen at random from each continent, were:
 
@@ -5947,7 +5947,7 @@ They all gave the correct answers of Ron DeSantis, reboot, sohan and Sharif. Che
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_75.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_75.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -5992,7 +5992,7 @@ The Biden administration said that Muhammad bin Salman, Saudi Arabia’s de fact
 
 #### Malaysia goes to the polls
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap353.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221119_dap353.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -6004,7 +6004,7 @@ The ruling Barisan Nasional coalition has promised stability, hoping that voters
 
 #### Macron attends Francophone summit
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap351.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221119_dap351.jpg)
 
 PHOTO: AFP
 
@@ -6016,7 +6016,7 @@ Mr Macron has long argued for a less formal, more vibrant way for Francophone co
 
 #### “Sarajevo Safari” reopens wounds of the siege
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap349.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221119_dap349.jpg)
 
 PHOTO: ARSMEDIA
 
@@ -6028,7 +6028,7 @@ The allegation that outsiders were invited to fire into Sarajevo is not new. (Fo
 
 #### Polish sculpture in London
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap350.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221119_dap350.jpg)
 
 PHOTO: TATE/MADELEINE BUDDO
 
@@ -6040,7 +6040,7 @@ Her sculptures, made from fibres like horsehair, sisal and braided hemp, are med
 
 #### Weekend profile: Changpeng Zhao, boss of Binance
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap354.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221119_dap354.jpg)
 
 PHOTO: REUTERS
 
@@ -6058,7 +6058,7 @@ A complete crash across the sector would probably obliterate Mr Zhao’s wealth,
 
 #### Weekly crossword
 
-![img](https://cdn.espresso.economist.com/files/public/images/Espressocrossword_9.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/Espressocrossword_9.jpg)
 
 Our crossword is designed for experienced cruciverbalists and newcomers alike. Both sets of clues give the same answers, all of which feature in articles in this week’s edition of The Economist.
 
@@ -6086,11 +6086,11 @@ Cryptic clues
 
 3 across Close friend shot from inside city (6)
 
-![img](https://cdn.espresso.economist.com/files/public/images/XwordGrid_12_656_5.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/XwordGrid_12_656_5.jpg)
 
 #### The winners of this week’s quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_76.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_76.jpeg)
 
 Thank you to everyone who took part in this week’s quiz. The winners, chosen at random from each continent, were:
 
@@ -6171,7 +6171,7 @@ emir 埃米尔（对某些穆斯林统治者的尊称）
 
 #### The long road ahead for Evergrande
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap360.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221119_dap360.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -6179,13 +6179,13 @@ On Monday a plot of land in Shenzhen, a city in south China, will go up for auct
 
 The Chinese government recently announced measures that will help distressed property firms. Bank loans for some companies that were due in the next six months can now be extended. But it is unclear how much this will help Evergrande, which is still being forced to hock assets, such as the land in Shenzhen, to avoid collapse.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221126_DAC819.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_DAC819.jpg)
 
 
 
 #### After COP27, hopes for climate mitigation look to Dubai
 
-![img](https://cdn.espresso.economist.com/files/public/images/000_32NZ9K8.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/000_32NZ9K8.jpg)
 
 After the tortuous brokering of COP27 finally ended, Frans Timmermans, the EU’s lead negotiator, took to the floor. “Tomorrow,” he told delegates, “we start preparing for COP28”. Like many, Mr Timmermans was disappointed that the summit in Egypt did not go further to reduce greenhouse-gas emissions. He also stressed the need for countries at the next conference—which will be held in Dubai in November 2023—to make a firm commitment to reduce their use of all fossil fuels.
 
@@ -6195,7 +6195,7 @@ That might be tricky. Oil and natural gas power the economy of the United Arab E
 
 #### Twitter’s mass unfollowing
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap362.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221119_dap362.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -6209,7 +6209,7 @@ Twitter had been over-staffed, relative to peers. But the scale and speed of the
 
 #### Kosovo and Serbia look for a deal
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap366.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221119_dap366.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -6223,7 +6223,7 @@ Even if Messrs Kurti and Vucic can cobble together a deal on number plates, more
 
 #### In “Glass Onion”, Hollywood targets the mega-rich
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221119_dap364.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221119_dap364.jpg)
 
 PHOTO: JOHN WILSON/NETFLIX © 2022
 
@@ -6237,7 +6237,7 @@ Hollywood has tended to revere the super-rich, but now it seems that the knives 
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/20220218_OPD004_hq_56.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20220218_OPD004_hq_56.jpg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -6282,7 +6282,7 @@ The football associations of seven European countries told their captains not to
 
 #### Kamala Harris showboats in the Philippines
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap305.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_dap305.jpg)
 
 PHOTO: AP
 
@@ -6294,7 +6294,7 @@ To manage the Chinese navy, coastguard and fishing fleet without overly riling i
 
 #### Europe’s economies brace for a fall
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap308_0.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_dap308_0.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -6304,11 +6304,11 @@ The elation may be premature. Energy prices have fallen but remain high, straini
 
 A second worry is the hit to the incomes of European households. A post-pandemic cushion of savings buoyed consumption, and the risk of unemployment remains low. But that may not last either. The billions of euros Europe’s governments have dispensed to firms and households may not prevent Europe from tumbling into recession.
 
-![](https://cdn.espresso.economist.com/files/public/images/20221126_DAC830_0.jpg)
+![](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_DAC830_0.jpg)
 
 #### Iranians continue their lethal protest
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap307.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_dap307.jpg)
 
 PHOTO: PA
 
@@ -6320,7 +6320,7 @@ The regime has arrested thousands and issued a handful of death sentences. In th
 
 #### Cyril Ramaphosa visits Britain
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap303.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_dap303.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -6334,7 +6334,7 @@ Mr Ramaphosa may enjoy discussing with the King shared interests such as wildlif
 
 #### The history of an American siege
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap304.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_dap304.jpg)
 
 PHOTO: AP
 
@@ -6348,7 +6348,7 @@ Mr Mufti weaves wider historical events into his story, such as Malcolm X’s as
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_37_31.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_37_31.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -6393,7 +6393,7 @@ Italy’s right-wing government agreed on the details of its budget for next yea
 
 #### Turkey threatens to march into Syria
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap315.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_dap315.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -6401,11 +6401,11 @@ PHOTO: GETTY IMAGES
 
 Turkey blamed the bomb on the Kurdistan Workers’ Party, a rebel group fighting for Kurdish self-rule within Turkey. The group denied that claim. On Sunday Turkish rockets rained down on Kurdish militants in Iraq and Syria; a retaliatory strike on Monday killed two Turkish citizens in Gaziantep, a province adjacent to Syria. Although tensions are rising, the West has been loth to restrain Mr. Erdogan, who has become a helpful go-between in the conflict between Russia and Ukraine.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221126_DAM900.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_DAM900.jpg)
 
 #### Credit Suisse refills its coffers
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap311.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_dap311.jpg)
 
 PHOTO: REUTERS
 
@@ -6417,7 +6417,7 @@ In its new incarnation Credit Suisse plans to focus on international wealth mana
 
 #### Legal wrangling over Scottish independence
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap312.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_dap312.jpg)
 
 PHOTO: ALAMY
 
@@ -6431,7 +6431,7 @@ If the court allows her, Nicola Sturgeon, Scotland’s first minister, wants a r
 
 #### Russia’s security club hobbles on
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap313.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_dap313.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -6443,7 +6443,7 @@ Russia, which keeps its troops in CSTO countries as part of the security pact, h
 
 #### Steven Spielberg’s origin story
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap314.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_dap314.jpg)
 
 PHOTO: AP
 
@@ -6455,7 +6455,7 @@ The director of “E.T.”, “Jaws” and most recently “West Side Story” i
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_37_32.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_37_32.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -6500,7 +6500,7 @@ Twin bomb attacks on Jerusalem’s bus network during rush hour killed one and i
 
 #### South Korea’s economic quagmire
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap324.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_dap324.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -6512,7 +6512,7 @@ But increasing rates also carries risks. Bond markets have been in turmoil for a
 
 #### Opening Donald Trump’s Mar-a-Lago documents
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap327.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_dap327.jpg)
 
 PHOTO: AP
 
@@ -6526,7 +6526,7 @@ Last week Merrick Garland, the attorney-general, named Jack Smith as special cou
 
 #### The EU squabbles over an energy price cap
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap329.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_dap329.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -6534,13 +6534,13 @@ Another month, another packed agenda for EU energy ministers as they meet on Thu
 
 The main topic of discussion is a cap on the price of gas used to generate electricity, proposed by the European Commission on Tuesday. Opponents, notably gas-dependent Germany, fear that such a cap may lead suppliers to reduce shipments to Europe, thus intensifying the energy crisis. But advocates of a cap are not thrilled with the commission’s proposal either. The ceiling is set at a lofty €275 ($284) per megawatt-hour, and would apply only when European wholesale prices diverge from those of global liquefied natural gas (as they did over the summer). Another proposal on the table is to speed up the rollout of renewable energy to reduce Europe’s dependence on gas. That is less controversial, and probably a lot more effective.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221126_dac871.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_dac871.jpg)
 
 
 
 #### A fundraising tour for Cuba’s president
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap330.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_dap330.jpg)
 
 PHOTO: DAVE SIMONDS
 
@@ -6552,7 +6552,7 @@ Yet Mr Díaz-Canel has reason for optimism. His four hosts may find that footing
 
 #### Volodymyr Zelensky, speechmaker
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap328.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_dap328.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -6564,7 +6564,7 @@ After Russia’s invasion, the speeches of Volodymyr Zelensky, Ukraine’s presi
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_37_33.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_37_33.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -6610,7 +6610,7 @@ Data from America’s Department of Agriculture show that a record 50.5m birds h
 
 #### Hong Kong’s Catholics under threat
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap336.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_dap336.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -6624,7 +6624,7 @@ The “sinicisation” of Catholicism has now reached Hong Kong. Catholic missio
 
 #### Bangladesh fires up a new coal plant
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap337.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_dap337.jpg)
 
 PHOTO: AP
 
@@ -6632,13 +6632,13 @@ On Friday a new coal-fired power station will begin operating in southern Bangla
 
 Bangladesh’s energy policy is cleaner than this fiasco suggests. Last year the government scrapped plans to construct ten coal-fired power stations after pressure from activists and trouble getting the necessary investments. It has instead focused largely on building natural-gas and nuclear plants. But domestic gas reserves are declining and imports are expensive. Regular blackouts—last month more than 100m people were plunged into darkness—may also slow Bangladesh’s transition away from the world’s dirtiest fuel.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221126_DAC882.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_DAC882.jpg)
 
 
 
 #### Businesses brace for a bad Black Friday
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap339.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_dap339.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -6652,7 +6652,7 @@ The football World Cup may squeeze sales further. With America and England playi
 
 #### Rebels without a pause
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap338.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_dap338.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -6664,7 +6664,7 @@ On Wednesday regional leaders meeting in Angola gave M23 an ultimatum: if a ceas
 
 #### Another outing for Lady Chatterley’s Lover
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap340.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_dap340.jpg)
 
 PHOTO: SEAMUS RYAN/NETFLIX
 
@@ -6676,7 +6676,7 @@ The latest version, made for Netflix, will appear in cinemas in America and Brit
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_77.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_77.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -6743,7 +6743,7 @@ Football World Cup: America’s footballers maintained their unbeaten record aga
 
 #### Taiwan’s local elections
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap350.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_dap350.jpg)
 
 PHOTO: AP
 
@@ -6755,7 +6755,7 @@ Such hawkish stances have helped the DPP win general elections against the pro-u
 
 #### Early voting opens in Georgia
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap351.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_dap351.jpg)
 
 PHOTO: AP
 
@@ -6769,7 +6769,7 @@ Now Mr Walker hopes to win over some of the 200,000 people who voted for Mr Kemp
 
 #### The art and activism of Nan Goldin
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap352.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_dap352.jpg)
 
 PHOTO: AP
 
@@ -6781,7 +6781,7 @@ The documentary, which premiered in America on Wednesday, maintains a hushed int
 
 #### The pleasures of “Peanuts”
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap353.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_dap353.jpg)
 
 PHOTO: FACEBOOK.COM/SNOOPY
 
@@ -6793,7 +6793,7 @@ Schulz’s human characters, with their large heads and tiny torsos, look vulner
 
 **Weekend profile: Hervé Renard, manager of the Saudi football team**
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap349.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_dap349.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -6811,7 +6811,7 @@ Mr Renard’s decision to take the Saudi job earned him plenty of criticism, giv
 
 #### Weekly crossword
 
-![img](https://cdn.espresso.economist.com/files/public/images/crossword_5.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/crossword_5.jpg)
 
 Our crossword is designed for experienced cruciverbalists and newcomers alike. Both sets of clues give the same answers, all of which feature in articles in this week’s edition of The Economist:
 
@@ -6821,7 +6821,7 @@ Email all four answers by 9am BST on Monday to crossword@economist.com, along wi
 
 #### Cryptic clues
 
-![img](https://cdn.espresso.economist.com/files/public/images/crossword_5.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/crossword_5.jpg)
 
 1 down New leader is dishevelled—beware odd hair mania! (5, 7)
 
@@ -6841,13 +6841,13 @@ Factual clues
 
 3 across Where demonstrators recently focused on health care, not energy prices (6)
 
-![img](https://cdn.espresso.economist.com/files/public/images/XwordGrid_12_656_4.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/XwordGrid_12_656_4.jpg)
 
 
 
 #### The winners of this week’s quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/20220221_OPD004_43.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20220221_OPD004_43.jpg)
 
 Thank you to everyone who took part in this week’s quiz. The winners, chosen at random from each continent, were:
 
@@ -6907,7 +6907,7 @@ Football World Cup: On Sunday Morocco shocked Belgium, FIFA’s second-highest r
 
 Fury mounts over lockdowns in China
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap359.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_dap359.jpeg)
 
 PHOTO: GETTY IMAGES
 
@@ -6921,7 +6921,7 @@ China’s rulers hate instability. But they are in a bind. The country is grippe
 
 #### In with the old at Disney
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap355.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_dap355.jpeg)
 
 PHOTO: ALAMY
 
@@ -6929,13 +6929,13 @@ Staff of the Magic Kingdom will gather on Monday morning for a virtual town-hall
 
 Investors are glad to have him back: Disney’s stock has risen since his return. And staff are mostly pleased that Mr Iger is undoing a centralising strategy initiated by Mr Chapek, handing power back to Disney’s creative teams. But the difficulties at Disney, and across Hollywood, run deeper. Streaming is undermining the cinema and cable industries and turning out to be less profitable than either. The new-old Bob will need more than new-old ideas.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_DAC891.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_DAC891.jpg)
 
 
 
 #### Judicial nominees on the Senate’s agenda
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap361.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_dap361.jpeg)
 
 PHOTO: GETTY IMAGES
 
@@ -6949,7 +6949,7 @@ The Democrats’ marginal majority in the Senate allowed Mr Biden to rapidly ush
 
 #### The “real election” gets going in Chicago
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap301.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_dap301.jpg)
 
 PHOTO: BLOOMBERG VIA GETTY IMAGES
 
@@ -6961,7 +6961,7 @@ Ms Lightfoot, who sees herself as a successor to Harold Washington, the city’s
 
 #### AI outplays humans, again
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221126_dap364.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_dap364.jpeg)
 
 PHOTO: HASBRO
 
@@ -6975,7 +6975,7 @@ But Diplomacy also requires players to communicate with others well enough to im
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/EspressoQuiz2022_2.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/EspressoQuiz2022_2.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 BST on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -7023,7 +7023,7 @@ Football World Cup: Brazil scored in the 83rd minute to beat Switzerland 1-0. Th
 
 #### What’s behind the selection of Pakistan’s new army chief
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap305.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_dap305.jpeg)
 
 PHOTO: AP
 
@@ -7035,7 +7035,7 @@ Mr Sharif seems to have appointed Mr Munir partly because he sees him as a count
 
 #### Emmanuel Macron goes to Washington
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap311.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_dap311.jpeg)
 
 PHOTO: AP
 
@@ -7047,7 +7047,7 @@ The war in Ukraine and geopolitical shifts mean that there will be tensions to m
 
 #### Why the world faces more water stress
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap310.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_dap310.jpeg)
 
 PHOTO: AP
 
@@ -7055,13 +7055,13 @@ On Tuesday the World Meteorological Organisation publishes, for the first time, 
 
 Global warming worsens natural disasters that affect the availability of water: droughts are longer and more frequent; storms and rising sea levels contaminate water used for drinking and washing. Climate change is also depleting stocks of freshwater held in glaciers, snow and permafrost. According to the UN, by 2050 1.6bn people will be at risk of floods (up from 1.2bn currently), while 3.2bn may live in water-scarce areas (up from 1.9bn in 2010). And water, or its lack, influences economies, too: in Britain and Europe droughts currently cause around $9bn in losses each year.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_DAC934.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_DAC934.jpg)
 
 
 
 #### America’s army recruitment woes
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap308.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_dap308.jpeg)
 
 PHOTO: GETTY IMAGES
 
@@ -7073,7 +7073,7 @@ Fewer want to sign up, anyway. The army says that just 9% of eligible candidates
 
 #### America and Iran meet on the football field
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap306.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_dap306.jpeg)
 
 PHOTO: GETTY IMAGES
 
@@ -7085,7 +7085,7 @@ The match follows months of anti-government demonstrations in Iran, which Americ
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/EspressoQuiz2022_2.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/EspressoQuiz2022_2.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -7133,7 +7133,7 @@ Football World Cup: America beat Iran 1-0. The goal, by Christian Pulisic, sent 
 
 #### China’s leaders seek to calm the protesters
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap317.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_dap317.jpeg)
 
 PHOTO: AP
 
@@ -7145,7 +7145,7 @@ The government will not grant the freedom of expression that many protesters wan
 
 #### India’s economy cools but remains an outlier
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap320.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_dap320.jpeg)
 
 PHOTO: AFP
 
@@ -7153,13 +7153,13 @@ Few countries have enjoyed as smooth an economic recovery from covid-19 as India
 
 The global economic slowdown is hitting India’s exports; manufacturing activity remains sluggish. Interest-rate rises are also beginning to bite with tightening expected to continue until next year (albeit less aggressively). The cooling economy, however, may not be a bad thing. In addition to reining in inflation, currently at 6.8%, economists believe weaker domestic demand could reduce worrisome fiscal and trade deficits.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_DAC023.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_DAC023.jpg)
 
 
 
 #### Who will replace Nancy Pelosi?
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap322.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_dap322.jpeg)
 
 PHOTO: GETTY IMAGES
 
@@ -7171,7 +7171,7 @@ Her replacement will almost definitely be Hakeem Jeffries. Aged 52, he is a prag
 
 #### New inflation data for the euro zone
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap316.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_dap316.jpeg)
 
 PHOTO: GETTY IMAGES
 
@@ -7183,7 +7183,7 @@ Early estimates from Germany and Spain for November suggest that headline inflat
 
 #### Barbados starts work on a project to commemorate slavery
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap323.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_dap323.jpeg)
 
 PHOTO: GETTY IMAGES
 
@@ -7195,7 +7195,7 @@ Attitudes towards culture, identity and the British monarchy are changing across
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/EspressoQuiz2022_4.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/EspressoQuiz2022_4.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -7245,7 +7245,7 @@ Football World Cup: Argentina advanced to the knockout stage after beating Polan
 
 #### A tense trip to China for a top Eurocrat
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap335.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_dap335.jpeg)
 
 PHOTO: AP/GETTY IMAGES
 
@@ -7259,7 +7259,7 @@ Ukraine will also be on the agenda. Mr Michel and other European leaders want Mr
 
 #### Spain sets its sights on startups
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap336.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_dap336.jpeg)
 
 PHOTO: DAVE SIMONDS
 
@@ -7273,7 +7273,7 @@ The law should make life easier for “digital nomads” who fancy a move to Spa
 
 #### A challenge to India’s opposition in Gujarat
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap332.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_dap332.jpeg)
 
 PHOTO: AFP
 
@@ -7285,7 +7285,7 @@ But watch the battle for second place. That spot has usually gone to Congress, I
 
 #### The soaring global cost of living
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap333.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_dap333.jpeg)
 
 PHOTO: GETTY IMAGES
 
@@ -7293,13 +7293,13 @@ New York and Singapore are the world’s most expensive cities, according to the
 
 Russia’s war in Ukraine is one cause, leading to higher food and energy prices. Supply-chain problems caused by covid-19 restrictions in China are another. Though six of the top ten cities that have moved the most up the rankings are in America, the two biggest climbers are Russian. Western sanctions have driven up prices such that St Petersburg has risen 70 places since 2021, while Moscow has shot up 88 slots, to 37th place.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_WOM937.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_WOM937.jpg)
 
 
 
 #### A Beckmann self-portrait goes under the hammer
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap329.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_dap329.jpeg)
 
 PHOTO: GETTY IMAGES
 
@@ -7313,7 +7313,7 @@ Beckmann painted the self-portrait as a gift for his wife, Mathilde, in 1943, af
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/EspressoQuiz2022_5.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/EspressoQuiz2022_5.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -7358,7 +7358,7 @@ Football World Cup: Japan stunned Spain with a 2-1 win. Both countries advanced 
 
 #### The Trump Organisation on trial
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap342.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_dap342.jpg)
 
 PHOTO: AP
 
@@ -7370,7 +7370,7 @@ Prosecutors allege that the company engaged in a long-running tax-avoidance sche
 
 #### British politicians visit Taiwan
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap338.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_dap338.jpg)
 
 PHOTO: AP
 
@@ -7382,7 +7382,7 @@ The British delegation is the latest in a string of international guests that Ms
 
 #### Pakistan’s $1bn repayment deadline
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap339.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_dap339.jpg)
 
 PHOTO: ALAMY
 
@@ -7394,7 +7394,7 @@ It needs to: Pakistan’s economy is in tatters. The lingering effects of the co
 
 #### A famous Christmas painting returns in London
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap340_0.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_dap340_0.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -7406,7 +7406,7 @@ The three-year restoration project, led by Jill Dunkerton, the gallery’s senio
 
 #### The rubbish problem of plastic pollution
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap343.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_dap343.jpg)
 
 PHOTO: AP
 
@@ -7416,13 +7416,13 @@ Some parties—including Britain, Canada, the EU and Switzerland—want the fina
 
 Plastic pollution causes about $100bn-worth of damages and clean-up costs each year, according to one estimate. Just 9% of the stuff is recycled. But countries have until the end of 2024 to finalise an accord. An effective one is far from being in the bag.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_DAC043.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_DAC043.jpg)
 
 
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/20220218_OPD004_hq_57.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20220218_OPD004_hq_57.jpg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -7434,7 +7434,7 @@ Our baristas will serve you a new question each day this week. On Friday your ch
 
 #### Crossword winners
 
-![img](https://cdn.espresso.economist.com/files/public/images/Espresso_0.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/Espresso_0.jpg)
 
 The winners of last week’s crossword
 
@@ -7486,7 +7486,7 @@ fumuguan, a Chinese word meaning “father-mother official” and often used to 
 
 #### Migration in the Med
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap357.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_dap357.jpg)
 
 PHOTO: AFP
 
@@ -7498,7 +7498,7 @@ That deal, struck in June by 18 EU members, was already falling short. Under the
 
 #### Next up at the World Cup
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap349.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_dap349.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -7510,7 +7510,7 @@ But there is also plenty of scope for upsets. America will be energetic opponent
 
 #### Native Americans fight for sacred land
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap358.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_dap358.jpg)
 
 PHOTO: AP
 
@@ -7522,7 +7522,7 @@ Tribal leaders, who gathered this week in Arizona for the Sacred Sites Summit, s
 
 #### The Sydney Modern opens
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap350.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_dap350.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -7534,7 +7534,7 @@ Sydneysiders blush at how their city gets outshone culturally by Melbourne, know
 
 #### Weekend profile: Alexie, a protester in Shanghai
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap346.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_dap346.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -7554,7 +7554,7 @@ The next day, clips of the protest she attended flooded Twitter, which is blocke
 
 #### Weekly crossword
 
-![img](https://cdn.espresso.economist.com/files/public/images/EspressoCrossword_11.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/EspressoCrossword_11.jpg)
 
 Our crossword is designed for experienced cruciverbalists and newcomers alike. Both sets of clues give the same answers, all of which feature in articles in this week’s edition of The Economist:
 
@@ -7580,7 +7580,7 @@ Email all four answers by 9am BST on Monday to crossword@economist.com, along wi
 
 3 across “The King ___ dies”, according to a legal maxim (5)
 
-![img](https://cdn.espresso.economist.com/files/public/images/XwordGrid_10_545_0.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/XwordGrid_10_545_0.jpg)
 
 
 
@@ -7588,7 +7588,7 @@ Email all four answers by 9am BST on Monday to crossword@economist.com, along wi
 
 #### The winners of this week’s quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/20220221_OPD004_44.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20220221_OPD004_44.jpg)
 
 Thank you to everyone who took part in this week’s quiz. The winners, chosen at random from each continent, were:
 
@@ -7646,7 +7646,7 @@ Football World Cup: After a group stage punctuated by a series of extraordinary 
 
 #### Squeezing Russian oil flows
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap364.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_dap364.jpg)
 
 PHOTO: AP
 
@@ -7658,7 +7658,7 @@ European (including British) suppliers of tankers and insurance will be banned f
 
 #### Transatlantic trade troubles
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap365.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_dap365.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -7672,7 +7672,7 @@ The text of the law says that exceptions can be applied only to countries with w
 
 
 
-PHOTO: ![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap361.jpg)REUTERS
+PHOTO: ![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_dap361.jpg)REUTERS
 
 Four years after sidestepping the crux of a dispute between a gay couple and a Christian baker who refused to make them a wedding cake, America’s Supreme Court is taking another crack at the subject. On Monday the justices will examine the case of 303 Creative v Elenis. The question is: does the First Amendment protect a web designer who says her beliefs about marriage preclude her from creating websites for gay weddings?
 
@@ -7682,7 +7682,7 @@ Lorie Smith, the designer, says “sacred freedoms of thought and mind” bar th
 
 #### China’s faltering economy
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap360.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_dap360.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -7690,13 +7690,13 @@ On Monday China’s central bank will free up 500bn yuan ($72bn) for lending wit
 
 That is worrying for the government, which in its quest for growth wants companies to expand operations and build factories. Until China fixes its covid problem, RRR cuts might amount to little more than pushing on a string.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221210_DAC070.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221210_DAC070.jpg)
 
 
 
 #### Picking the word of the year
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221203_dap363.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221203_dap363.jpg)
 
 PHOTO: ALAMY
 
@@ -7708,7 +7708,7 @@ One is “goblin mode”, a state in which someone indulges their laziest or mos
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_78.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_78.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -7754,7 +7754,7 @@ Football World Cup: After a group stage full of extraordinary upsets, the first 
 
 #### Georgia closes America’s Senate race
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap309.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221210_dap309.jpg)
 
 PHOTO: REUTERS
 
@@ -7768,7 +7768,7 @@ Other Republicans running in Georgia, such as Brian Kemp, the incumbent governor
 
 #### The EU’s moment of truth with Hungary
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap305.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221210_dap305.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -7780,7 +7780,7 @@ Ministers are expected to allow €5.8bn in grants from the EU’s covid-recover
 
 #### India’s controversial citizenship law faces a test
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap307.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221210_dap307.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -7792,7 +7792,7 @@ Now the contentious legislation looms large again. Earlier this year Amit Shah, 
 
 #### Can America go green fast enough?
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap303.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221210_dap303.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -7800,13 +7800,13 @@ On Tuesday the Biden administration will hold the first lease auction for offsho
 
 Investors continue to face headwinds. The Inflation Reduction Act, the most ambitious climate legislation America has ever passed, includes tax breaks for clean-energy technologies. But an onerous, often litigious, permitting process means government agencies can take five years to approve a solar farm. Wind projects and transmission lines often take longer. Democrats and Republicans agree the planning process is lousy, but lawmakers spurned a reform bill championed by Joe Manchin, a senator for West Virginia. If Congress does not get its act together, America’s green dreams may be no more than that.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221210_DAC080.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221210_DAC080.jpg)
 
 
 
 #### The show struggles to go on
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap308.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221210_dap308.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -7820,7 +7820,7 @@ Broadway has not bounced back yet: this summer performances of “Moulin Rouge!�
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_37_34.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_37_34.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -7906,7 +7906,7 @@ Latvia withdrew the broadcasting license of TV Rain, an exiled Russian news chan
 
 #### The EU’s economy starts to shiver
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap319.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221210_dap319.jpg)
 
 PHOTO: DPA
 
@@ -7918,7 +7918,7 @@ The one bright spot is the labour market. Businesses expect to hire more workers
 
 #### Who can regulate federal elections in America?
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap317.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221210_dap317.jpg)
 
 PHOTO: REUTERS
 
@@ -7932,7 +7932,7 @@ They contend that the federal constitution empowers only state legislatures to r
 
 #### Britain’s workforce has fallen ill
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap315.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221210_dap315.jpg)
 
 PHOTO: EPA
 
@@ -7946,7 +7946,7 @@ To heal the economy, the IPPR recommends that policymakers improve prevention of
 
 #### How to save the Earth’s biodiversity
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap316.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221210_dap316.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -7956,13 +7956,13 @@ Healthy ecosystems provide food, building materials and medicines. Plants releas
 
 All of the UN’s previous biodiversity targets were missed. The hope is that COP15 will yield a stronger set of measurable, legally binding rules, as the Paris agreement did for climate change. Many countries want a commitment to protect 30% of the world’s land and oceans by 2030 (and money to do it). But how to get there remains opaque—especially when America remains one of the few countries not to have ratified COP’s underlying Convention on Biological Diversity.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221210_dac949.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221210_dac949.jpg)
 
 
 
 #### Britain crowns a contemporary artist
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap314.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221210_dap314.jpg)
 
 PHOTO: REX SHUTTERSTOCK
 
@@ -7976,7 +7976,7 @@ Ms Pollard’s work, which explores Britain’s racist past through pub signs an
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_37_35.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_37_35.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -8024,7 +8024,7 @@ India’s central bank raised its key interest rate by 35 basis points to 6.25% 
 
 #### A cloudy forecast for Japan’s economy
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap329.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221210_dap329.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -8036,7 +8036,7 @@ But there may be sunshine ahead. A government stimulus package should soon make 
 
 #### Disney tries to make streaming pay
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap327.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221210_dap327.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -8046,13 +8046,13 @@ The only snag is that the business bleeds money. Last quarter Disney lost $1.5bn
 
 On Thursday Disney will put into practice its new plan for restoring profitability. Disney+ in America will be punctuated by advertising for the first time. Viewers will have to pay $10.99 a month, 38% more than the current ad-free subscription price, to avoid ads. They may moan, but with Netflix launching ads last month there is no escape: streamers are determined to make the business pay.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221210_DAC596.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221210_DAC596.jpg)
 
 
 
 #### Wirecard’s former bosses go on trial
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap325.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221210_dap325.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -8064,7 +8064,7 @@ The trial for fraud at a company once seen as a star of Germany’s tech sector 
 
 #### Times of trouble for the news
 
-**![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap328.jpg)**
+**![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221210_dap328.jpg)**
 
 PHOTO: GETTY IMAGES
 
@@ -8078,7 +8078,7 @@ The Times, which has more paying digital subscribers than any other English-lang
 
 #### Harry and Meghan take on the firm, again
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap330.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221210_dap330.jpg)
 
 PHOTO: DAVE SIMONDS
 
@@ -8092,7 +8092,7 @@ Still, the couple hope to win hearts and minds. That quest will be helped by a r
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_37_36.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_37_36.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -8140,7 +8140,7 @@ The EU’s top court ruled that Google must remove data from its search engine r
 
 #### China unleashes its population, and inflation
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap338.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221210_dap338.jpg)
 
 PHOTO: EPA
 
@@ -8152,7 +8152,7 @@ But now that the government is haphazardly abandoning its zero-covid approach, w
 
 #### Russia’s struggles in its own backyard
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap352.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221210_dap352.jpg)
 
 PHOTO: ALAMY
 
@@ -8164,7 +8164,7 @@ But the EEU’s real purpose is to serve as a vehicle for Russia to laud its inf
 
 #### Saudi Arabia cosies up to China
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap337.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221210_dap337.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -8176,7 +8176,7 @@ The meetings underscore a growing relationship. China imports most of its oil fr
 
 #### Britain thinks inflation has passed its peak
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap339.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221210_dap339.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -8188,7 +8188,7 @@ If the latest expectation falls, it would support the case for gentler rate rise
 
 #### Best foot forward at the World Cup
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap335.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221210_dap335.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -8200,7 +8200,7 @@ Another contender is Brazil’s spearhead, Richarlison, who has scored three ski
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_37_37.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_37_37.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown one winner per continent on Saturday.
 
@@ -8212,7 +8212,7 @@ Our baristas will serve you a new question each day this week. On Friday your ch
 
 #### The winners of last week’s crossword
 
-![img](https://cdn.espresso.economist.com/files/public/images/Espressocrossword_10.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/Espressocrossword_10.jpg)
 
 Thank you to everyone who took part in our new weekly crossword, published in the weekend edition of Espresso. The winners, chosen at random, were:
 
@@ -8265,7 +8265,7 @@ Football World Cup: Penalty shoot-outs saw Brazil, the tournament favourites, lo
 
 #### Russia’s quixotic campaign for Bakhmut
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap355.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221210_dap355.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -8277,7 +8277,7 @@ The battle has turned into a test for Yevgeny Prigozhin, the ambitious founder o
 
 #### Giorgia Meloni’s cash battle
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap360.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221210_dap360.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -8289,7 +8289,7 @@ Ms Meloni says she wants to help traders who are disadvantaged by a low cash cei
 
 #### Applying AI to detect pneumonia
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap357.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221210_dap357.jpg)
 
 PHOTO: PMC
 
@@ -8301,7 +8301,7 @@ The AI algorithm “listens” to coughs and conducts acoustical analysis of the
 
 #### Brendan Fraser resurfaces in “The Whale”
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap356.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221210_dap356.jpg)
 
 PHOTO: LANDMARK
 
@@ -8313,7 +8313,7 @@ A melodramatic chamber piece directed by Darren Aronofsky (“The Wrestler”, �
 
 #### Weekend profile: Itamar Ben-Gvir, Israel’s likely new national security minister
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap359.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221210_dap359.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -8331,7 +8331,7 @@ Mr Ben-Gvir is trying to project a more moderate image, promising that as securi
 
 #### Weekly crossword
 
-![img](https://cdn.espresso.economist.com/files/public/images/EspressoCrossword_12.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/EspressoCrossword_12.jpg)
 
 Our crossword is designed for experienced cruciverbalists and newcomers alike. Both sets of clues give the same answers, all of which feature in articles in this week’s edition of The Economist:
 
@@ -8357,13 +8357,13 @@ Cryptic clues
 
 3 across Something Britain is often hesitant to grant (6)
 
-![img](https://cdn.espresso.economist.com/files/public/images/XwordGrid_11_656_11.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/XwordGrid_11_656_11.jpg)
 
 
 
 #### The winners of this week’s quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/20220218_OPD004_hq_58.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20220218_OPD004_hq_58.jpg)
 
 Thank you to everyone who took part in this week’s quiz. The winners, chosen at random, were:
 
@@ -8375,7 +8375,7 @@ They all gave the correct answers of Mirage, New York-New York, Luxor, The Twelv
 
 
 
-> If I have a thousand ideas and only one turns out to be good, I am satisfied
+> **If I have a thousand ideas and only one turns out to be good, I am satisfied.**
 >
 > Alfred Nobel
 
@@ -8415,7 +8415,7 @@ Several main roads in northern **Kosovo** that lead to border crossings with **S
 
 #### The EU’s strenuous series of summits
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap373.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221210_dap373.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -8427,7 +8427,7 @@ This may prove tricky. Both the sanctions and the aid require the unanimous appr
 
 #### India’s largest winemaker goes public
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap371.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221210_dap371.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -8439,7 +8439,7 @@ Much of that is down to Sula Vineyards, which launches on Mumbai’s stockmarket
 
 #### Mexico’s president goes after the electoral body
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap362.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221210_dap362.jpg)
 
 PHOTO: REUTERS
 
@@ -8451,7 +8451,7 @@ Even though Mr López Obrador had to water down his initial constitutional refor
 
 #### Britain’s cranky labour force
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap370.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221210_dap370.jpg)
 
 PHOTO: I-IMAGES
 
@@ -8463,7 +8463,7 @@ Labour unrest is seeping across Britain. Nurses will undertake their largest-eve
 
 #### Homage to an age-old tale
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221210_dap361.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221210_dap361.jpg)
 
 PHOTO: DISNEY
 
@@ -8475,7 +8475,7 @@ The film’s best-known song declares the story to be a “Tale As Old As Time�
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_37_38.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_37_38.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown three winners on Saturday.
 
@@ -8483,7 +8483,7 @@ Our baristas will serve you a new question each day this week. On Friday your ch
 
 
 
-> What is beautiful is moral, that is all there is to it.
+> **What is beautiful is moral, that is all there is to it.**
 >
 > Gustave Flaubert
 
@@ -8527,7 +8527,7 @@ In the Sunday edition of Espresso we incorrectly stated that the Nobel Peace pri
 
 #### High hopes for low inflation in America
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221217_dap319.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221217_dap319.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -8539,7 +8539,7 @@ If correct, that would be the most subdued two-month run of inflation since 2021
 
 #### Criminal charges for Sam Bankman-Fried
 
-![img](https://cdn.espresso.economist.com/files/public/images/000_32NT6GW.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/000_32NT6GW.jpg)
 
 PHOTO: AP
 
@@ -8553,7 +8553,7 @@ Fraud charges require prosecutors to prove that a defendant knowingly deceived i
 
 #### What African governments want from America
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221217_dap314.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221217_dap314.jpg)
 
 PHOTO: GETTY IMAGES
 
@@ -8567,7 +8567,7 @@ Donald Trump saw Africa through the prism of America’s contest with China. But
 
 #### How to rebuild Ukraine, from Paris
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221217_dap315.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221217_dap315.jpg)
 
 PHOTO: GETTY IMAGES/UKRINFORM/FUTURE PU
 
@@ -8577,13 +8577,13 @@ The conference will have two parts. An international roundtable will consider ho
 
 The meeting comes when Mr Macron is keen to show that, despite suggestions from eastern European allies that he is soft on Russia, France is fully behind Ukraine. According to the Kiel Institute, a German research outfit, of EU countries only Germany has pledged more aid.
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221217_DAC145.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221217_DAC145.jpg)
 
 
 
 #### World Cup semi-finals begin
 
-![img](https://cdn.espresso.economist.com/files/public/images/20221217_dap317.jpg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221217_dap317.jpg)
 
 PHOTO: GETTY IMAGES/REUTERS
 
@@ -8595,7 +8595,7 @@ Whoever wins will face the victor of the second semi-final, between France and M
 
 #### Daily quiz
 
-![img](https://cdn.espresso.economist.com/files/public/images/QuizNEW_79.jpeg)
+![img](https://niceboy.online/insight/public/Espresso/PHOTOS/QuizNEW_79.jpeg)
 
 Our baristas will serve you a new question each day this week. On Friday your challenge is to give us all five answers and, as important, tell us the connecting theme. Email your responses (and include mention of your home city and country) by 1700 GMT on Friday to QuizEspresso@economist.com. We’ll pick randomly from those with the right answers and crown three winners on Saturday.
 
