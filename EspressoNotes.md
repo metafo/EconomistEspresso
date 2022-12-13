@@ -514,6 +514,45 @@
       - [Times of trouble for the news](#times-of-trouble-for-the-news)
       - [Harry and Meghan take on the firm, again](#harry-and-meghan-take-on-the-firm-again)
       - [Daily quiz](#daily-quiz-44)
+    - [December 9, 2022](#december-9-2022)
+      - [The world in brief December 9, 2022](#the-world-in-brief-december-9-2022)
+      - [Fact of the day:](#fact-of-the-day-43)
+      - [China unleashes its population, and inflation](#china-unleashes-its-population-and-inflation)
+      - [Russia’s struggles in its own backyard](#russias-struggles-in-its-own-backyard)
+      - [Saudi Arabia cosies up to China](#saudi-arabia-cosies-up-to-china)
+      - [Britain thinks inflation has passed its peak](#britain-thinks-inflation-has-passed-its-peak)
+      - [Best foot forward at the World Cup](#best-foot-forward-at-the-world-cup)
+      - [Daily quiz](#daily-quiz-45)
+      - [The winners of last week’s crossword](#the-winners-of-last-weeks-crossword-7)
+    - [December 10, 2022](#december-10-2022)
+      - [The world in brief December 10, 2022](#the-world-in-brief-december-10-2022)
+      - [Word of the week:](#word-of-the-week-9)
+      - [Russia’s quixotic campaign for Bakhmut](#russias-quixotic-campaign-for-bakhmut)
+      - [Giorgia Meloni’s cash battle](#giorgia-melonis-cash-battle)
+      - [Applying AI to detect pneumonia](#applying-ai-to-detect-pneumonia)
+      - [Brendan Fraser resurfaces in “The Whale”](#brendan-fraser-resurfaces-in-the-whale)
+      - [Weekend profile: Itamar Ben-Gvir, Israel’s likely new national security minister](#weekend-profile-itamar-ben-gvir-israels-likely-new-national-security-minister)
+      - [Weekly crossword](#weekly-crossword-9)
+      - [The winners of this week’s quiz](#the-winners-of-this-weeks-quiz-8)
+    - [December 12, 2022](#december-12-2022)
+      - [The world in brief December 12, 2022](#the-world-in-brief-december-12-2022)
+      - [Fact of the day:](#fact-of-the-day-44)
+      - [The EU’s strenuous series of summits](#the-eus-strenuous-series-of-summits)
+      - [India’s largest winemaker goes public](#indias-largest-winemaker-goes-public)
+      - [Mexico’s president goes after the electoral body](#mexicos-president-goes-after-the-electoral-body)
+      - [Britain’s cranky labour force](#britains-cranky-labour-force)
+      - [Homage to an age-old tale](#homage-to-an-age-old-tale)
+      - [Daily quiz](#daily-quiz-46)
+    - [December 13, 2022](#december-13-2022)
+      - [The world in brief December 13, 2022](#the-world-in-brief-december-13-2022)
+      - [Fact of the day:](#fact-of-the-day-45)
+      - [Correction:](#correction)
+      - [High hopes for low inflation in America](#high-hopes-for-low-inflation-in-america)
+      - [Criminal charges for Sam Bankman-Fried](#criminal-charges-for-sam-bankman-fried)
+      - [What African governments want from America](#what-african-governments-want-from-america)
+      - [How to rebuild Ukraine, from Paris](#how-to-rebuild-ukraine-from-paris)
+      - [World Cup semi-finals begin](#world-cup-semi-finals-begin)
+      - [Daily quiz](#daily-quiz-47)
 
 ---------------------------------------------------
 
@@ -6905,7 +6944,7 @@ Football World Cup: On Sunday Morocco shocked Belgium, FIFA’s second-highest r
 
 
 
-Fury mounts over lockdowns in China
+#### Fury mounts over lockdowns in China
 
 ![img](https://niceboy.online/insight/public/Espresso/PHOTOS/20221126_dap359.jpeg)
 
