@@ -8210,6 +8210,8 @@ An energy deal worth nearly $16bn was announced between **Vietnam** and rich cou
 
 **$8bn**, the cost of the fraud that Sam Bankman-Fried is alleged to have committed according to American authorities. [Read the full story](https://te.arielherself.xyz/finance-and-economics/2022/12/13/sam-bankman-fried-faces-many-years-in-jail).
 
+
+
 ------
 
 #### A dovish turn at the ECB?
